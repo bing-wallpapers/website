@@ -1,4 +1,4 @@
-name: Bing_Wallpaper_Node
+name: Bing_Wallpaper
 
 on:
   schedule:
