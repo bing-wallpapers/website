@@ -1,3 +1,9 @@
+## 2023-1-23 摩艾石像  
+
+复活节岛上的摩艾石像，智利 (© Karine Aigner/Tandem Stills + Motion) [4k Edition](https://cn.bing.com//th?id=OHR.SunriseMoai_ZH-CN7413178404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.SunriseMoai_ZH-CN7413178404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-1-22 春节快乐，兔年大吉！  
 
 春节的桃花和红灯笼 (© David Ng+EyeEm/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.ChineseSpringFestival2023_ZH-CN7281854882_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
