@@ -1,3 +1,9 @@
+## 2023-1-24 明信片和雪花球的取景地  
+
+多洛米蒂山谷中的科莱圣卢恰小镇，意大利 (© mauritius images GmbH/Alamy) [4k Edition](https://cn.bing.com//th?id=OHR.ColleSantaLucia_ZH-CN7638164714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.ColleSantaLucia_ZH-CN7638164714_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-1-23 摩艾石像  
 
 复活节岛上的摩艾石像，智利 (© Karine Aigner/Tandem Stills + Motion) [4k Edition](https://cn.bing.com//th?id=OHR.SunriseMoai_ZH-CN7413178404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
