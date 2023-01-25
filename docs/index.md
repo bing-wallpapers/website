@@ -1,3 +1,9 @@
+## 2023-1-25 谁写下了友谊天长地久？  
+
+位于阿伯费尔迪桦树林中的罗伯特·彭斯雕像, 苏格兰 (© Dennis Barnes/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.BirksofAberfeldy_ZH-CN7810226692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.BirksofAberfeldy_ZH-CN7810226692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-1-24 明信片和雪花球的取景地  
 
 多洛米蒂山谷中的科莱圣卢恰小镇，意大利 (© mauritius images GmbH/Alamy) [4k Edition](https://cn.bing.com//th?id=OHR.ColleSantaLucia_ZH-CN7638164714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
