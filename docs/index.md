@@ -1,3 +1,9 @@
+## 2023-1-26 通往天门的阶梯  
+
+天门洞，湖南天门山国家森林公园，中国 (© Shane P. White/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.HighArchChina_ZH-CN8170154553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.HighArchChina_ZH-CN8170154553_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-1-25 谁写下了友谊天长地久？  
 
 位于阿伯费尔迪桦树林中的罗伯特·彭斯雕像, 苏格兰 (© Dennis Barnes/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.BirksofAberfeldy_ZH-CN7810226692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
