@@ -1,3 +1,9 @@
+## 2023-1-27 向伟大的红树林致敬！  
+
+瓜纳阿卡维韦斯半岛国家公园的红树林，古巴 (© Claudio Contreras/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.RedMangrove_ZH-CN4083989028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.RedMangrove_ZH-CN4083989028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-1-26 通往天门的阶梯  
 
 天门洞，湖南天门山国家森林公园，中国 (© Shane P. White/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.HighArchChina_ZH-CN8170154553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
