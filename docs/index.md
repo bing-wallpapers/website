@@ -1,3 +1,9 @@
+## 2023-1-28 像极了艺术画作的真实照片  
+
+从国际空间站看到的巴哈马周围的蓝绿色水域 (© NASA) [4k Edition](https://cn.bing.com//th?id=OHR.BlueBahamas_ZH-CN2083290847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.BlueBahamas_ZH-CN2083290847_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-1-27 向伟大的红树林致敬！  
 
 瓜纳阿卡维韦斯半岛国家公园的红树林，古巴 (© Claudio Contreras/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.RedMangrove_ZH-CN4083989028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
