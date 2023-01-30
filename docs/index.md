@@ -1,3 +1,9 @@
+## 2023-1-30 一条安静的林间小路  
+
+卡纳塔克邦的纳加尔霍雷国家公园，印度 (© Vivek BR/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.NagarholeNationalPark_ZH-CN2550578922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.NagarholeNationalPark_ZH-CN2550578922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-1-29 为什么乌鸫与冬天联系紧密？  
 
 埃塞克斯的乌鸫，英国 (© Bill Coster/Alamy Stock Photo) [4k Edition](https://cn.bing.com//th?id=OHR.BlackbirdDay_ZH-CN2291101162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
