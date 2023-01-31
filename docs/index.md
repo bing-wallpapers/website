@@ -1,3 +1,9 @@
+## 2023-1-31 斑马快活的一天  
+
+南非自然保护区的斑马 (© Richard Du Toit/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.ZebraTrio_ZH-CN5902552401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.ZebraTrio_ZH-CN5902552401_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-1-30 一条安静的林间小路  
 
 卡纳塔克邦的纳加尔霍雷国家公园，印度 (© Vivek BR/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.NagarholeNationalPark_ZH-CN2550578922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
