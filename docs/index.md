@@ -1,3 +1,9 @@
+## 2023-2-4 早春的气息  
+
+永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.Lichun2023_ZH-CN7842399047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.Lichun2023_ZH-CN7842399047_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-3 冬天的乐趣  
 
 费尔蒙芳堤娜城堡酒店，魁北克省，加拿大 (© Romiana Lee/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.QuebecFrontenac_ZH-CN9519096458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
