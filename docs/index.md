@@ -1,3 +1,9 @@
+## 2023-2-6 峡湾国家公园  
+
+峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock) [4k Edition](https://cn.bing.com//th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-5 兔年元宵节快乐！  
 
 毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.YearRabbit_ZH-CN2751166096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
