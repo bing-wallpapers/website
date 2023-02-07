@@ -1,3 +1,9 @@
+## 2023-2-7 历史悠久的山顶村庄  
+
+拉布罗小镇，列蒂省，意大利 (© Marco Ilari/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.MedievalLabro_ZH-CN0015356188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.MedievalLabro_ZH-CN0015356188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-6 峡湾国家公园  
 
 峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock) [4k Edition](https://cn.bing.com//th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
