@@ -1,3 +1,9 @@
+## 2023-2-8 湖滨城堡  
+
+艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.EileanDonanDawn_ZH-CN0383017858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.EileanDonanDawn_ZH-CN0383017858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-7 历史悠久的山顶村庄  
 
 拉布罗小镇，列蒂省，意大利 (© Marco Ilari/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.MedievalLabro_ZH-CN0015356188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
