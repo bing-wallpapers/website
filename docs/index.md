@@ -1,3 +1,9 @@
+## 2023-2-9 这些美丽的岩石波浪是什么？  
+
+下羚羊峡谷，亚利桑那州，美国 (© AZCat/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.LowerAntelopeAZ_ZH-CN4758496750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.LowerAntelopeAZ_ZH-CN4758496750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-8 湖滨城堡  
 
 艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.EileanDonanDawn_ZH-CN0383017858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
