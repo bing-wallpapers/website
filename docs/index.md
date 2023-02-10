@@ -1,3 +1,9 @@
+## 2023-2-10 声学杰作  
+
+埃庇道鲁斯剧场, 希腊阿尔戈利斯省 (© George Pachantouris/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.EpidaurusGreece_ZH-CN0640135476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.EpidaurusGreece_ZH-CN0640135476_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-9 这些美丽的岩石波浪是什么？  
 
 下羚羊峡谷，亚利桑那州，美国 (© AZCat/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.LowerAntelopeAZ_ZH-CN4758496750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
