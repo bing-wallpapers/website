@@ -1,3 +1,9 @@
+## 2023-2-15 世界河马日，隆重的庆典  
+
+河马妈妈和宝宝，乔贝国家公园，博茨瓦纳 (© jacobeukman/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.HippoDayChobe_ZH-CN2883647954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.HippoDayChobe_ZH-CN2883647954_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-14 雪中之恋  
 
 日本北海道小樽雪灯之路的冰屋 (© T Photography/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.OtaruIgloo_ZH-CN2078929256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
