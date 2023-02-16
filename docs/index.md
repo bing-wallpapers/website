@@ -1,3 +1,9 @@
+## 2023-2-16 这个悬崖怎么着火了？  
+
+“火流”马尾瀑布，约塞米蒂国家公园，美国加利福尼亚州 (© Jeff Lewis/Tandem Stills + Motion) [4k Edition](https://cn.bing.com//th?id=OHR.FireFallYosemite_ZH-CN3351604820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.FireFallYosemite_ZH-CN3351604820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-15 世界河马日，隆重的庆典  
 
 河马妈妈和宝宝，乔贝国家公园，博茨瓦纳 (© jacobeukman/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.HippoDayChobe_ZH-CN2883647954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
