@@ -1,3 +1,9 @@
+## 2023-2-18 令人叹为观止的冰洞  
+
+埃本冰洞，密歇根上半岛，美国 (© Dean Pennala/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.EbenIceCave_ZH-CN6035107581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.EbenIceCave_ZH-CN6035107581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-17 “后院鸟类统计”活动开始了！  
 
 栖息在红袋鼠爪枝干上的艾氏煌蜂鸟 (© GypsyPictureShow/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.BirdcountAllen_ZH-CN4029022734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
