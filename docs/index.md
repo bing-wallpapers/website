@@ -1,3 +1,9 @@
+## 2023-2-19 海洋之王  
+
+毛伊岛附近的座头鲸，美国夏威夷 (© Flip Nicklin/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.MauiWhale_ZH-CN6664793962_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.MauiWhale_ZH-CN6664793962_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-18 令人叹为观止的冰洞  
 
 埃本冰洞，密歇根上半岛，美国 (© Dean Pennala/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.EbenIceCave_ZH-CN6035107581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
