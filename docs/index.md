@@ -1,3 +1,9 @@
+## 2023-2-21 带上国王饼  
+
+新奥尔良法语区，路易斯安那州 (© f11photo/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-20 在大自然中漫步  
 
 Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.Itaimbezinho_ZH-CN5641449623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
