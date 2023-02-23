@@ -1,3 +1,9 @@
+## 2023-2-23 宁静的山谷  
+
+克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士 (© Matthew Williams Ellis/Plainpicture) [4k Edition](https://cn.bing.com//th?id=OHR.BabblingBrook_ZH-CN9371346787_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.BabblingBrook_ZH-CN9371346787_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-22 和平之钟  
 
 菲希特尔山脉上的和平钟，萨克森州，德国 (© Jan Drahokoupil/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
