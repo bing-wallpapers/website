@@ -1,3 +1,9 @@
+## 2023-2-25 冬天的布莱斯峡谷石林  
+
+布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.BryceAnniv_ZH-CN5305245786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.BryceAnniv_ZH-CN5305245786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-24 一只华丽招摇的鸳鸯  
 
 里士满公园的鸳鸯，伦敦，英国 (© Oscar Dewhurst/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.RichmondParkDuck_ZH-CN4956127005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
