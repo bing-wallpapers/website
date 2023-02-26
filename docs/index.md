@@ -1,3 +1,9 @@
+## 2023-2-26 随着亚马孙的树冠摇摆  
+
+亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.CanopyPeru_ZH-CN5659581553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.CanopyPeru_ZH-CN5659581553_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-2-25 冬天的布莱斯峡谷石林  
 
 布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.BryceAnniv_ZH-CN5305245786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
