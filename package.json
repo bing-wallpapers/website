@@ -9,7 +9,8 @@
     "docDev": "vitepress dev docs",
     "docBuild": "vitepress build docs",
     "docServe": "vitepress serve docs",
-    "tsc": "tsc"
+    "tsc": "tsc",
+    "prettier": "prettier --write . "
   },
   "repository": {
     "type": "git",
@@ -29,6 +30,7 @@
     "typescript": "^4.7.4"
   },
   "devDependencies": {
+    "prettier": "2.8.4",
     "vitepress": "^1.0.0-alpha.4",
     "vue": "^3.2.37"
   }

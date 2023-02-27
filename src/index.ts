@@ -1,6 +1,5 @@
-import fetch from "node-fetch"
+import fetch from "node-fetch";
 import { readFile, writeFile } from "fs";
-
 
 async function init() {
   try {
@@ -79,21 +78,18 @@ async function init() {
 }
 
 const writeReadme = async (list: any) => {
-
-  const today = list[0]
-  const { date, chineseTitle, file4kUrl } = today
-
+  const today = list[0];
+  const { date, chineseTitle, file4kUrl } = today;
 
   const arr: string[] = [];
 
-  arr.push(`# [Bing Wallpapers](https://bing-wallpapers.vercel.app)  \n\n`)
-  arr.push(`### ${date} ${chineseTitle}  \n\n`)
-  arr.push(`![4k版本](${file4kUrl})  \n\n`)
-  arr.push(`|     |     |     | \n`)
-  arr.push(`|:---:|:---:|:---:| \n`)
+  arr.push(`# [Bing Wallpapers](https://bing-wallpapers.vercel.app)  \n\n`);
+  arr.push(`### ${date} ${chineseTitle}  \n\n`);
+  arr.push(`![4k版本](${file4kUrl})  \n\n`);
+  arr.push(`|     |     |     | \n`);
+  arr.push(`|:---:|:---:|:---:| \n`);
 
-
-  const newArr: string[] = []
+  const newArr: string[] = [];
   list.forEach((item: any, index: any) => {
     if (index !== 0) {
       // const data = `![](https://cdn.jsdelivr.net/gh/exposir/bing-wallpaper-node@main/${item.filePreviewUrl})<br> ${item.date} [4K 版本](https://cdn.jsdelivr.net/gh/exposir/bing-wallpaper-node@main/${item.file4kUrl}) <br> ${item.chinesePreviewTitle}`;
@@ -110,7 +106,6 @@ const writeReadme = async (list: any) => {
 
       console.log(newArr);
     }
-
   });
 
   let a = newArr.join("");
