@@ -2,7 +2,7 @@ name: Bing_Wallpaper
 
 on:
   schedule:
-    - cron: "1 1 * * *"
+    - cron: "30 1 * * *" # 1:30 UTC
   workflow_dispatch:
 
 jobs:
