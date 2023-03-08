@@ -42,8 +42,8 @@ async function init() {
       );
     }
 
-    await download(bing4kUrl, file4kUrl, `${date}-4k`);
-    await download(bingPreviewUrl, filePreviewUrl, `${date}-preview`);
+    // await download(bing4kUrl, file4kUrl, `${date}-4k`);
+    // await download(bingPreviewUrl, filePreviewUrl, `${date}-preview`);
 
     const newData = {
       date,
