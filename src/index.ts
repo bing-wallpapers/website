@@ -33,6 +33,9 @@ async function init() {
     const file4kUrl = `./static/${date}-4k.jpg`;
     const filePreviewUrl = `./static/${date}-preview.jpg`;
 
+    const china4kUrl = `https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${date}-4k.jpg?raw=true`;
+    const chinaPreviewUrl = `https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${date}-preview.jpg?raw=true`;
+
     //异步
     async function download(url, file, name) {
       const response = await fetch(url);
@@ -85,7 +88,9 @@ const writeReadme = async (list: any) => {
 
   arr.push(`# [Bing Wallpapers](https://bing-wallpapers.vercel.app)  \n\n`);
   arr.push(`### ${date} ${chineseTitle}  \n\n`);
-  arr.push(`![4k版本](${file4kUrl})  \n\n`);
+  arr.push(
+    `![4k版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${date}-4k.jpg?raw=true`})  \n\n`
+  );
   arr.push(`|     |     |     | \n`);
   arr.push(`|:---:|:---:|:---:| \n`);
 
@@ -93,7 +98,11 @@ const writeReadme = async (list: any) => {
   list.forEach((item: any, index: any) => {
     if (index !== 0) {
       // const data = `![](https://cdn.jsdelivr.net/gh/exposir/bing-wallpaper-node@main/${item.filePreviewUrl})<br> ${item.date} [4K 版本](https://cdn.jsdelivr.net/gh/exposir/bing-wallpaper-node@main/${item.file4kUrl}) <br> ${item.chinesePreviewTitle}`;
-      const data = `![](${item.filePreviewUrl})<br> ${item.date} [4K 版本](${item.file4kUrl}) <br> ${item.chineseTitle}`;
+      const data = `![](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-preview.jpg?raw=true`})<br> ${
+        item.date
+      } [4K 版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-4k.jpg?raw=true`}) <br> ${
+        item.chineseTitle
+      }`;
 
       if (index % 3 === 0) {
         newArr.push(`|${data}|\n`);
