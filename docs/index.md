@@ -1,8 +1,8 @@
-## 2023-3-8 守候浪漫的极光  
+## 2023-3-9 雨后见彩虹  
 
-极光展示，怀特霍斯，育空地区，加拿大 (© John Hyde/plainpicture/Design Pics) [4k Edition](https://cn.bing.com//th?id=OHR.WhitehorseAurora_ZH-CN0978404088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国 (© Beverley Van Praagh/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
 
-![](https://cn.bing.com//th?id=OHR.WhitehorseAurora_ZH-CN0978404088_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+![](https://cn.bing.com//th?id=OHR.WaimeaRainbow_ZH-CN1127225170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
 
 ## 2023-2-27 冰冷的北极，温暖的拥抱  
 
