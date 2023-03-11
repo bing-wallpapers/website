@@ -1,3 +1,9 @@
+## 2023-3-11 像一张油画  
+
+马萨诸塞州格洛斯特的沼泽地 (© Thomas H. Mitchell/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.LongWharf_ZH-CN8793669955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.LongWharf_ZH-CN8793669955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-10 巨人的谜题  
 
 埃代尔，峰区，英国 (© John Finney/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.EdaleValley_ZH-CN8464524952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
