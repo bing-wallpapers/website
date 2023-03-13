@@ -1,3 +1,9 @@
+## 2023-3-13 午睡消除烦恼  
+
+正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚 (© Cavan Images/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.LionessesNap_ZH-CN9240393299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.LionessesNap_ZH-CN9240393299_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-12 波浪板起伏的绿丘  
 
 南唐斯国家公园的绵羊，东萨塞克斯郡，英国 (© Slawek Staszczuk/Alamy) [4k Edition](https://cn.bing.com//th?id=OHR.SouthDownsSheep_ZH-CN8986424729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
