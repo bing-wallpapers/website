@@ -1,3 +1,9 @@
+## 2023-3-14 美丽的曲径迷宫  
+
+阿伊纳帕植物园灌木丛迷宫，塞浦路斯 (© Tpopova/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.CyprusMaze_ZH-CN9448060895_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-13 午睡消除烦恼  
 
 正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚 (© Cavan Images/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.LionessesNap_ZH-CN9240393299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
