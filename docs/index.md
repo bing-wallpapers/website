@@ -1,3 +1,9 @@
+## 2023-3-21 你最喜欢什么颜色？  
+
+彩色粉笔 (© Stephen Shepherd/Plainpicture) [4k Edition](https://cn.bing.com//th?id=OHR.ColourDay_ZH-CN1032554089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.ColourDay_ZH-CN1032554089_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-20 春天的色彩  
 
 紫番红花 (© Raimund Linke/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.PurpleCrocus_ZH-CN0891528297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
