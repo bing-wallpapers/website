@@ -1,3 +1,9 @@
+## 2023-3-22 蜿蜒曲折的人工湖泊，鲍威尔湖  
+
+鲍威尔湖，美国 (© Peter Schaefer/Alamy) [4k Edition](https://cn.bing.com//th?id=OHR.LakePowellAerial_ZH-CN1427611965_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.LakePowellAerial_ZH-CN1427611965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-21 你最喜欢什么颜色？  
 
 彩色粉笔 (© Stephen Shepherd/Plainpicture) [4k Edition](https://cn.bing.com//th?id=OHR.ColourDay_ZH-CN1032554089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
