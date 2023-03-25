@@ -1,3 +1,9 @@
+## 2023-3-25 通往天堂的楼梯？  
+
+塞西尔布鲁尔楼梯，伦敦，英国 (© Yiran An/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-24 你见过大蒜开花吗？  
 
 盛开的野蒜，海尼希国家公园，德国 (© Frank Sommariva/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.WildGarlic_ZH-CN1869796625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
