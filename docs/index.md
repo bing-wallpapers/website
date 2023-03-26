@@ -1,3 +1,9 @@
+## 2023-3-26 大自然最为色彩鲜艳的一面  
+
+安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国 (© Ron and Patty Thomas/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.WildAnza_ZH-CN2384861750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.WildAnza_ZH-CN2384861750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-25 通往天堂的楼梯？  
 
 塞西尔布鲁尔楼梯，伦敦，英国 (© Yiran An/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
