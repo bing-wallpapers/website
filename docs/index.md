@@ -1,3 +1,9 @@
+## 2023-3-27 云雾缭绕的纽约市  
+
+云层中的纽约市天际线 (© Orbon Alija/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.NYCClouds_ZH-CN2585785154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.NYCClouds_ZH-CN2585785154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-26 大自然最为色彩鲜艳的一面  
 
 安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国 (© Ron and Patty Thomas/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.WildAnza_ZH-CN2384861750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
