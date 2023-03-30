@@ -1,3 +1,9 @@
+## 2023-3-30 华贵的色彩  
+
+孔雀羽毛 (© sarayut Thaneerat/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.PeacockFeathers_ZH-CN3403145691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.PeacockFeathers_ZH-CN3403145691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-29 世界海牛日  
 
 两只海牛，佛罗里达州的水晶河，美国 (© Gregory Sweeney/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.NuzzleManatee_ZH-CN3263788190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
