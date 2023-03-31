@@ -1,3 +1,9 @@
+## 2023-3-31 大自然的蓝色奇观  
+
+斯太尔河, 奥地利 (© guenterguni/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.SteyrRiver_ZH-CN3175702026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.SteyrRiver_ZH-CN3175702026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-30 华贵的色彩  
 
 孔雀羽毛 (© sarayut Thaneerat/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.PeacockFeathers_ZH-CN3403145691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
