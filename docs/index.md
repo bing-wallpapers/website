@@ -1,3 +1,9 @@
+## 2023-4-1 一只青翠碧绿的蛙  
+
+爪哇树蛙 (© kuritafsheen/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.FrogMonth_ZH-CN3874143397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.FrogMonth_ZH-CN3874143397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-3-31 大自然的蓝色奇观  
 
 斯太尔河, 奥地利 (© guenterguni/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.SteyrRiver_ZH-CN3175702026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
