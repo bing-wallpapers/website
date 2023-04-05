@@ -1,3 +1,9 @@
+## 2023-4-5 水墨西湖  
+
+杭州西湖水墨意境般的风景，浙江省，中国 (© zhangshuang/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.QingMing2023_ZH-CN6951199028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.QingMing2023_ZH-CN6951199028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-4-4 这座古桥在哪呢？  
 
 科尔多瓦的古罗马桥，西班牙 (© Jeremy Woodhouse/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.RomanBridge_ZH-CN4699931052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
