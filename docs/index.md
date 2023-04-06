@@ -1,3 +1,9 @@
+## 2023-4-6 亚利桑那州空中的粉月亮  
+
+月亮升起，图森，亚利桑那州，美国 (© Tim Murphy/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.ArizonaPinkMoon_ZH-CN5545607389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.ArizonaPinkMoon_ZH-CN5545607389_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-4-5 水墨西湖  
 
 杭州西湖水墨意境般的风景，浙江省，中国 (© zhangshuang/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.QingMing2023_ZH-CN6951199028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
