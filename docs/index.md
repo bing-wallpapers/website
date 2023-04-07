@@ -1,3 +1,9 @@
+## 2023-4-7 两只饥饿的小河狸  
+
+欧亚河狸宝宝，芬兰 (© Danny Green/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.KitsAspen_ZH-CN2160526845_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.KitsAspen_ZH-CN2160526845_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-4-6 亚利桑那州空中的粉月亮  
 
 月亮升起，图森，亚利桑那州，美国 (© Tim Murphy/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.ArizonaPinkMoon_ZH-CN5545607389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
