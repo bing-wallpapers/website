@@ -1,3 +1,9 @@
+## 2023-4-10 强大的亲缘纽带  
+
+安博塞利国家公园的大象，肯尼亚 (© Diana Robinson/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.ElephantTwins_ZH-CN6743766062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.ElephantTwins_ZH-CN6743766062_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-4-9 装饰华丽的复活节彩蛋  
 
 复活节彩蛋 (© fotomem/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.LithuanianEggs_ZH-CN6609820454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
