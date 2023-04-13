@@ -1,3 +1,9 @@
+## 2023-4-13 徒步旅行者的向往之地  
+
+斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo) [4k Edition](https://cn.bing.com//th?id=OHR.SnowdoniaNational_ZH-CN7415540950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.SnowdoniaNational_ZH-CN7415540950_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-4-12 此景只应天上有  
 
 从国际空间站拍摄的地球 (© Tim Peake/ESA/NASA via Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.EuropeFromISS_ZH-CN0722816540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
