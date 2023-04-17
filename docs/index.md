@@ -1,3 +1,9 @@
+## 2023-4-17 有点孤单，有点浪漫  
+
+布列塔尼的小米努灯塔，法国 (© RooM the Agency/Alamy) [4k Edition](https://cn.bing.com//th?id=OHR.MinouLighthouse_ZH-CN7940024247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.MinouLighthouse_ZH-CN7940024247_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-4-16 去放风筝吧！  
 
 阿德莱德国际风筝节，澳大利亚 (© Andrey Moisseyev/Alamy) [4k Edition](https://cn.bing.com//th?id=OHR.KiteDay_ZH-CN7813901578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
