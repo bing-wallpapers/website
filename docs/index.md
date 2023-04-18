@@ -1,3 +1,9 @@
+## 2023-4-18 山顶上的文化奇观  
+
+马丘比丘，秘鲁 (© Dora Dalton/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.MPPUnesco_ZH-CN8076198158_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.MPPUnesco_ZH-CN8076198158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-4-17 有点孤单，有点浪漫  
 
 布列塔尼的小米努灯塔，法国 (© RooM the Agency/Alamy) [4k Edition](https://cn.bing.com//th?id=OHR.MinouLighthouse_ZH-CN7940024247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
