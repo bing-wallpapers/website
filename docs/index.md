@@ -1,3 +1,9 @@
+## 2023-4-20 宁静的夜空  
+
+克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images) [4k Edition](https://cn.bing.com//th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-4-19 一对互相依偎的褐头凤鹛  
 
 褐头凤鹛 (© Staffan Widstrand/Minden Pictures) [4k Edition](https://cn.bing.com//th?id=OHR.TaiwanYuhina_ZH-CN6541884178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
