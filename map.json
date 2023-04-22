@@ -1,16 +1,5 @@
 [
     {
-        "date": "2023-4-21",
-        "file4kUrl": "./static/2023-4-21-4k.jpg",
-        "filePreviewUrl": "./static/2023-4-21-preview.jpg",
-        "bing4kUrl": "https://cn.bing.com//th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp",
-        "bingPreviewUrl": "https://cn.bing.com//th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=480&h=270",
-        "bing1080Url": "https://cn.bing.com//th?id=OHR.ProcidaItaly_ZH-CN7712975930_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp",
-        "chineseTitle": "充满活力、阳光普照的岛屿",
-        "chineseCopyright": "普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)",
-        "chinesePreviewTitle": "普罗奇达岛，意大利"
-    },
-    {
         "date": "2023-4-20",
         "file4kUrl": "./static/2023-4-20-4k.jpg",
         "filePreviewUrl": "./static/2023-4-20-preview.jpg",
