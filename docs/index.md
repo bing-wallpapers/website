@@ -1,3 +1,9 @@
+## 2023-4-22 国家公园中狡猾的常住居民  
+
+岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州 (© Ian Shive/Tandem Stills + Motion) [4k Edition](https://cn.bing.com//th?id=OHR.EarthDayFox_ZH-CN7926350207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com//th?id=OHR.EarthDayFox_ZH-CN7926350207_1920x1080.jpg&rf=LaDigue_1920x1080.jpg&pid=hp) 
+
 ## 2023-4-21 充满活力、阳光普照的岛屿  
 
 普罗奇达岛，意大利 (© Sean Pavone/Shutterstock) [4k Edition](https://cn.bing.com//th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
