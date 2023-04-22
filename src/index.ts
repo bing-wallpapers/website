@@ -11,7 +11,6 @@ async function init() {
     let { url, title, copyright } = images[0] || {};
 
     const chineseCopyright = copyright;
-    const chinesePreviewTitle = copyright.split("(")[0].trim();
     const chineseTitle = title;
 
     const time = new Date();
@@ -33,7 +32,6 @@ async function init() {
       bing1080Url,
       chineseTitle,
       chineseCopyright,
-      chinesePreviewTitle,
     };
 
     readFile("./map.json", function (err, data) {
