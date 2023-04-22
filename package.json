@@ -23,13 +23,10 @@
   },
   "homepage": "https://github.com/exposir/bing-wallpaper-node#readme",
   "dependencies": {
-    "@types/node": "^18.7.11",
-    "node-fetch": "2.6.1",
-    "request": "^2.88.2",
-    "request-promise": "^4.2.6",
     "typescript": "^4.7.4"
   },
   "devDependencies": {
+    "@types/node": "^18.7.11",
     "@types/node-fetch": "^2.6.3",
     "prettier": "2.8.4",
     "vitepress": "^1.0.0-alpha.4",
