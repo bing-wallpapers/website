@@ -1,4 +1,4 @@
-import fetch from "node-fetch";
+const fetch = require("node-fetch");
 import { readFile, writeFile } from "fs/promises";
 
 interface BingImageData {
