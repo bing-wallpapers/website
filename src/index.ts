@@ -20,12 +20,11 @@ async function init() {
     const day = time.getDate();
     const date = `${year}-${month}-${day}`;
 
-    const bing1080Url = `https://cn.bing.com/${url}`;
-
     url = url.split("1920x1080").join("UHD");
 
-    const bing4kUrl = `https://cn.bing.com/${url}`;
-    const bingPreviewUrl = `https://cn.bing.com/${url}&w=480&h=270`;
+    const bing4kUrl = `https://cn.bing.com${url}`;
+    const bingPreviewUrl = `https://cn.bing.com${url}&w=480&h=270`;
+    const bing1080Url = `https://cn.bing.com${url}`;
 
     const newData = {
       date,
