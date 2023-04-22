@@ -20,10 +20,6 @@ async function init() {
     const day = time.getDate();
     const date = `${year}-${month}-${day}`;
 
-    console.log(time.getHours());
-
-    console.log("date", date);
-
     const bing1080Url = `https://cn.bing.com/${url}`;
 
     url = url.split("1920x1080").join("UHD");
@@ -45,9 +41,6 @@ async function init() {
       );
     }
 
-    // await download(bing4kUrl, file4kUrl, `${date}-4k`);
-    // await download(bingPreviewUrl, filePreviewUrl, `${date}-preview`);
-
     const newData = {
       date,
       file4kUrl,
@@ -59,8 +52,6 @@ async function init() {
       chineseCopyright,
       chinesePreviewTitle,
     };
-
-    console.log("成功");
 
     readFile("./map.json", function (err, data) {
       const a = data.toString();
@@ -112,16 +103,12 @@ const writeReadme = async (list: any) => {
       } else {
         newArr.push(`|${data}`);
       }
-
-      console.log(newArr);
     }
   });
 
   let a = newArr.join("");
 
   arr.push(a);
-
-  console.log("准备写入文件");
 
   readFile("README.md", function (err, data) {
     if (err) {
@@ -146,7 +133,6 @@ const writeIndex = async (b: any) => {
   const arr: string[] = [];
 
   b.forEach((item: any) => {
-    console.log(item);
     arr.push(`## ${item.date} ${item.chineseTitle}  \n\n`);
     arr.push(`${item.chineseCopyright} [4k Edition](${item.bing4kUrl})  \n\n`);
     arr.push(`![](${item.bing1080Url}) \n\n`);
