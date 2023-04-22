@@ -26,25 +26,9 @@ async function init() {
 
     const bing4kUrl = `https://cn.bing.com/${url}`;
     const bingPreviewUrl = `https://cn.bing.com/${url}&w=480&h=270`;
-    const file4kUrl = `./static/${date}-4k.jpg`;
-    const filePreviewUrl = `./static/${date}-preview.jpg`;
-
-    const china4kUrl = `https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${date}-4k.jpg?raw=true`;
-    const chinaPreviewUrl = `https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${date}-preview.jpg?raw=true`;
-
-    //异步
-    async function download(url, file, name) {
-      const response = await fetch(url);
-      const buffer = await response.buffer();
-      writeFile(file, buffer, () =>
-        console.log(`finished downloading! ${name}`)
-      );
-    }
 
     const newData = {
       date,
-      file4kUrl,
-      filePreviewUrl,
       bing4kUrl,
       bingPreviewUrl,
       bing1080Url,
@@ -73,7 +57,7 @@ async function init() {
 
 const writeReadme = async (list: any) => {
   const today = list[0];
-  const { date, chineseTitle, file4kUrl } = today;
+  const { date, chineseTitle } = today;
 
   const arr: string[] = [];
 
@@ -88,7 +72,6 @@ const writeReadme = async (list: any) => {
   const newArr: string[] = [];
   list.forEach((item: any, index: any) => {
     if (index !== 0) {
-      // const data = `![](https://cdn.jsdelivr.net/gh/exposir/bing-wallpaper-node@main/${item.filePreviewUrl})<br> ${item.date} [4K 版本](https://cdn.jsdelivr.net/gh/exposir/bing-wallpaper-node@main/${item.file4kUrl}) <br> ${item.chinesePreviewTitle}`;
       const data = `![](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-preview.jpg?raw=true`})<br> ${
         item.date
       } [4K 版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-4k.jpg?raw=true`}) <br> ${
