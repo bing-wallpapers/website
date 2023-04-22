@@ -1,5 +1,14 @@
 import fetch from "node-fetch";
-import { readFile, writeFile } from "fs";
+import { readFile, writeFile } from "fs/promises";
+
+interface BingImageData {
+  date: string;
+  bing4kUrl: string;
+  bingPreviewUrl: string;
+  bing1080Url: string;
+  chineseTitle: string;
+  chineseCopyright: string;
+}
 
 async function init() {
   try {
@@ -8,55 +17,63 @@ async function init() {
     );
     const bingJson = await bing.json();
     const { images = [] } = bingJson;
-    let { url, title, copyright } = images[0] || {};
+    const { url, title, copyright } = images[0] || {};
 
-    const chineseCopyright = copyright;
-    const chineseTitle = title;
-
-    const time = new Date();
-    const year = time.getFullYear();
-    const month = time.getMonth() + 1;
-    const day = time.getDate();
-    const date = `${year}-${month}-${day}`;
-
-    url = url.split("1920x1080").join("UHD");
-
-    const bing4kUrl = `https://cn.bing.com${url}`;
-    const bingPreviewUrl = `https://cn.bing.com${url}&w=480&h=270`;
-    const bing1080Url = `https://cn.bing.com${url}`;
-
-    const newData = {
-      date,
-      bing4kUrl,
-      bingPreviewUrl,
-      bing1080Url,
-      chineseTitle,
-      chineseCopyright,
-    };
-
-    readFile("./map.json", function (err, data) {
-      const a = data.toString();
-      const b = JSON.parse(a);
-      b.unshift(newData);
-
-      writeFile("./map.json", JSON.stringify(b), function (err) {
-        if (err) {
-          return console.error(err);
-        }
-      });
-      writeReadme(b);
-      writeIndex(b);
-    });
+    const newData = createNewData(url, title, copyright);
+    const list = await readAndUpdateMap(newData);
+    await writeReadme(list);
+    await writeIndex(list);
   } catch (e) {
     console.log("err", e);
   }
 }
 
-const writeReadme = async (list: any) => {
+function createNewData(
+  url: string,
+  title: string,
+  copyright: string
+): BingImageData {
+  const time = new Date();
+  const year = time.getFullYear();
+  const month = time.getMonth() + 1;
+  const day = time.getDate();
+  const date = `${year}-${month}-${day}`;
+
+  url = url.split("1920x1080").join("UHD");
+
+  const bing4kUrl = `https://cn.bing.com${url}`;
+  const bingPreviewUrl = `https://cn.bing.com${url}&w=480&h=270`;
+  const bing1080Url = `https://cn.bing.com${url}`;
+
+  return {
+    date,
+    bing4kUrl,
+    bingPreviewUrl,
+    bing1080Url,
+    chineseTitle: title,
+    chineseCopyright: copyright,
+  };
+}
+
+async function readAndUpdateMap(newData: BingImageData) {
+  const data = await readFile("./map.json", "utf-8");
+  const list = JSON.parse(data) as BingImageData[];
+  list.unshift(newData);
+  await writeFile("./map.json", JSON.stringify(list));
+  return list;
+}
+
+async function writeReadme(list: BingImageData[]) {
+  const content = buildReadmeContent(list);
+  await writeFile("README.md", content);
+  const data = await readFile("README.md", "utf-8");
+  console.log("异步读取文件数据: " + data);
+}
+
+function buildReadmeContent(list: BingImageData[]) {
+  const arr = [];
   const today = list[0];
   const { date, chineseTitle } = today;
-
-  const arr: string[] = [];
 
   arr.push(`# [Bing Wallpapers](https://bing-wallpapers.vercel.app)  \n\n`);
   arr.push(`### ${date} ${chineseTitle}  \n\n`);
@@ -66,70 +83,44 @@ const writeReadme = async (list: any) => {
   arr.push(`|     |     |     | \n`);
   arr.push(`|:---:|:---:|:---:| \n`);
 
-  const newArr: string[] = [];
-  list.forEach((item: any, index: any) => {
-    if (index !== 0) {
-      const data = `![](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-preview.jpg?raw=true`})<br> ${
-        item.date
-      } [4K 版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-4k.jpg?raw=true`}) <br> ${
-        item.chineseTitle
-      }`;
+  list.slice(1).forEach((item, index) => {
+    const data = `![](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-preview.jpg?raw=true`})<br> ${
+      item.date
+    } [4K 版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-4k.jpg?raw=true`}) <br> ${
+      item.chineseTitle
+    }`;
 
-      if (index % 3 === 0) {
-        newArr.push(`|${data}|\n`);
-        const result = newArr.join("");
-        arr.push(result);
-        newArr.length = 0;
-      } else {
-        newArr.push(`|${data}`);
-      }
+    if ((index + 1) % 3 === 0) {
+      arr.push(`|${data}|\n`);
+    } else {
+      arr.push(`|${data}`);
     }
   });
 
-  let a = newArr.join("");
+  if (list.length % 3 !== 0) {
+    arr.push("|\n");
+  }
 
-  arr.push(a);
+  return arr.join("");
+}
 
-  readFile("README.md", function (err, data) {
-    if (err) {
-      return console.error(err);
-    }
+async function writeIndex(list: BingImageData[]) {
+  const content = buildIndexContent(list);
+  await writeFile("./docs/index.md", content);
+  const data = await readFile("./docs/index.md", "utf-8");
+  console.log("异步读取文件数据: " + data);
+}
 
-    writeFile("README.md", arr.join(""), function (err) {
-      if (err) {
-        return console.error(err);
-      }
-      readFile("README.md", function (err, data) {
-        if (err) {
-          return console.error(err);
-        }
-        console.log("异步读取文件数据: " + data.toString());
-      });
-    });
-  });
-};
-
-const writeIndex = async (b: any) => {
+function buildIndexContent(list: BingImageData[]) {
   const arr: string[] = [];
 
-  b.forEach((item: any) => {
+  list.forEach((item) => {
     arr.push(`## ${item.date} ${item.chineseTitle}  \n\n`);
     arr.push(`${item.chineseCopyright} [4k Edition](${item.bing4kUrl})  \n\n`);
     arr.push(`![](${item.bing1080Url}) \n\n`);
   });
-  const newData = arr.join("");
 
-  writeFile("./docs/index.md", newData, function (err) {
-    if (err) {
-      return console.error(err);
-    }
-    readFile("./docs/index.md", function (err, data) {
-      if (err) {
-        return console.error(err);
-      }
-      console.log("异步读取文件数据: " + data.toString());
-    });
-  });
-};
+  return arr.join("");
+}
 
 init();
