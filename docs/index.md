@@ -1,3 +1,9 @@
+## 2023-4-25 在浮冰上休闲放松  
+
+阿德利企鹅 (© David Merron Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-4-24 隐藏在树林中  
 
 巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
