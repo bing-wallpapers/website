@@ -14,31 +14,32 @@ jobs:
       - name: Checkout repository
         uses: actions/checkout@v2
         with:
-          fetch-depth: 0
+          fetch-depth: 0 # Fetch the complete repository history
       - name: Setup Node.js
         uses: actions/setup-node@v2
         with:
-          node-version: 16
-          registry-url: https://npm.pkg.github.com/
+          node-version: 16 # Set Node.js version to 16
+          registry-url: https://npm.pkg.github.com/ # Set the registry URL for npm
       - name: Cache Node.js modules
         uses: actions/cache@v2
         with:
-          path: ~/.npm
-          key: ${{ runner.os }}-node-${{ hashFiles('**/package-lock.json') }}
-          restore-keys: |
+          path: ~/.npm # Path to cache the Node.js modules
+          key: ${{ runner.os }}-node-${{ hashFiles('**/package-lock.json') }} # Cache key based on the OS and package-lock.json
+          restore-keys:
+            | # Fallback cache keys in case the exact match is not found
             ${{ runner.os }}-node-
       - name: Install dependencies
-        run: npm install
+        run: npm install # Install required dependencies for the project
       - name: Build project
-        run: npm run build
+        run: npm run build # Run the build script for the project
       - name: Configure Git user
         run: |
-          git config --local user.email "exposir@foxmail.com"
-          git config --local user.name "exposir"
-          git add ./
-          git commit -m "Update wallpaper on $(date '+%Y-%m-%d %H:%M:%S %Z')"
+          git config --local user.email "exposir@foxmail.com" # Set the Git user email
+          git config --local user.name "exposir" # Set the Git user name
+          git add ./ # Stage all changes in the working directory
+          git commit -m "Update wallpaper on $(date '+%Y-%m-%d %H:%M:%S %Z')" # Commit the changes with a timestamp
       - name: Push changes to the repository
         uses: ad-m/github-push-action@master
         with:
-          github_token: ${{ secrets.MY_GIT_TOKEN }}
-          branch: main
+          github_token: ${{ secrets.MY_GIT_TOKEN }} # Use the secret token for authentication
+          branch: main # Push the changes to the main branch
