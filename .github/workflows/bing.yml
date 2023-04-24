@@ -1,4 +1,4 @@
-name: Bing_Wallpaper
+name: Update Bing Wallpaper
 
 on:
   schedule:
@@ -11,23 +11,25 @@ jobs:
     env: # 设置整个 job 的环境变量
       TZ: Asia/Shanghai
     steps:
-      - uses: actions/checkout@v2
-      - uses: actions/setup-node@v1
+      - name: Checkout repository
+        uses: actions/checkout@v2
+      - name: Setup Node.js
+        uses: actions/setup-node@v2
         with:
-          node-version: 14
+          node-version: 16
           registry-url: https://npm.pkg.github.com/
-      - name: Npm install
+      - name: Install dependencies
         run: npm install
-      - name: Run Project
+      - name: Build project
         run: npm run build
-      - name: Commit files
+      - name: Configure Git user
         run: |
           git config --local user.email "exposir@foxmail.com"
           git config --local user.name "exposir"
           git pull
           git add ./
-          git commit -m "update wallpaper"
-      - name: Push changes
+          git commit -m "Update wallpaper on $(date '+%Y-%m-%d %H:%M:%S %Z')"
+      - name: Push changes to the repository
         uses: ad-m/github-push-action@master
         with:
           github_token: ${{ secrets.MY_GIT_TOKEN }}
