@@ -1,3 +1,9 @@
+## 2023-4-24 隐藏在树林中  
+
+巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-4-23 梦幻般的紫色  
 
 日出时分薄雾笼罩下的薰衣草田，印度 (© Amith Nag Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
