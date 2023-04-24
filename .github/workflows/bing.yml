@@ -2,17 +2,19 @@ name: Update Bing Wallpaper
 
 on:
   schedule:
-    - cron: "1 17 * * *" # 每天北京时间凌晨1点1分执行 (UTC 时间下午 4 点 1 分)
+    - cron: "1 17 * * *" # Run daily at 1:01 AM Beijing Time (4:01 PM UTC)
   workflow_dispatch:
 
 jobs:
-  play:
+  update_wallpaper:
     runs-on: ubuntu-latest
-    env: # 设置整个 job 的环境变量
+    env: # Set environment variables for the entire job
       TZ: Asia/Shanghai
     steps:
       - name: Checkout repository
         uses: actions/checkout@v2
+        with:
+          fetch-depth: 0
       - name: Setup Node.js
         uses: actions/setup-node@v2
         with:
@@ -26,7 +28,6 @@ jobs:
         run: |
           git config --local user.email "exposir@foxmail.com"
           git config --local user.name "exposir"
-          git pull
           git add ./
           git commit -m "Update wallpaper on $(date '+%Y-%m-%d %H:%M:%S %Z')"
       - name: Push changes to the repository
