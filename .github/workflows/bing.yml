@@ -2,7 +2,7 @@ name: Bing_Wallpaper
 
 on:
   schedule:
-    - cron: "1 17 * * *" # 每天北京时间凌晨0点1分执行 (UTC 时间下午 4 点 1 分)
+    - cron: "1 17 * * *" # 每天北京时间凌晨1点1分执行 (UTC 时间下午 4 点 1 分)
   workflow_dispatch:
 
 jobs:
