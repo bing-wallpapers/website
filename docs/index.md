@@ -1,3 +1,9 @@
+## 2023-4-26 一对大雕鸮  
+
+大雕鸮幼崽 (© Michael Morse/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-4-25 在浮冰上休闲放松  
 
 阿德利企鹅 (© David Merron Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
