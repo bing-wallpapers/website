@@ -1,3 +1,9 @@
+## 2023-4-27 一望无际的天空  
+
+南帕德里岛，美国得克萨斯州 (© Jeff R Clow/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SouthPadre_ZH-CN8788572569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.SouthPadre_ZH-CN8788572569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-4-26 一对大雕鸮  
 
 大雕鸮幼崽 (© Michael Morse/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
