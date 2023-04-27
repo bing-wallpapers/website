@@ -1,3 +1,9 @@
+## 2023-4-28 温暖的阳光穿过古老森林  
+
+优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州 (© Orbon Alija/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-4-27 一望无际的天空  
 
 南帕德里岛，美国得克萨斯州 (© Jeff R Clow/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SouthPadre_ZH-CN8788572569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
