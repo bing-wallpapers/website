@@ -1,3 +1,9 @@
+## 2023-4-29 沙漠上空的星海  
+
+约书亚树国家公园上空的银河，美国加利福尼亚州 (© Schroptschop/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.JTNPMilkyWay_ZH-CN9128830420_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.JTNPMilkyWay_ZH-CN9128830420_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-4-28 温暖的阳光穿过古老森林  
 
 优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州 (© Orbon Alija/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
