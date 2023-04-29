@@ -1,3 +1,9 @@
+## 2023-4-30 伟大的遗迹  
+
+塞利努斯的神庙，西西里岛，意大利 (© Antonino Bartuccio/eStock) [4k Edition](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.TempleE_ZH-CN9455488333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-4-29 沙漠上空的星海  
 
 约书亚树国家公园上空的银河，美国加利福尼亚州 (© Schroptschop/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.JTNPMilkyWay_ZH-CN9128830420_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
