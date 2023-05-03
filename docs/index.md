@@ -1,3 +1,9 @@
+## 2023-5-4 原力与你同在  
+
+蒂卡尔的玛雅遗址，危地马拉 (© THP Creative/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-3 动物王国大迁徙  
 
 马赛马拉的角马，肯尼亚 (© Matt Polski/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ThreeWildebeest_ZH-CN0175563521_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
