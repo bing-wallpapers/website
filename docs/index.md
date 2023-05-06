@@ -1,3 +1,9 @@
+## 2023-5-7 什么事这么好笑？  
+
+海豹幼崽，伦迪岛，英国 (© Henley Spiers/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-6 一片花田  
 
 大麦和矢车菊, 诺德豪森, 德国 (© Mandy Tabatt/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
