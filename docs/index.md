@@ -1,3 +1,9 @@
+## 2023-5-8 藏在精致拱门里的百年时光  
+
+精致拱门，拱门国家公园，犹他州 (© Mark Brodkin Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-7 什么事这么好笑？  
 
 海豹幼崽，伦迪岛，英国 (© Henley Spiers/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
