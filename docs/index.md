@@ -1,3 +1,9 @@
+## 2023-5-9 天堂的一角  
+
+卡韦希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-8 藏在精致拱门里的百年时光  
 
 精致拱门，拱门国家公园，犹他州 (© Mark Brodkin Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
