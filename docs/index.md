@@ -1,3 +1,9 @@
+## 2023-5-10 金光中的灯塔  
+
+科尔杜昂灯塔，罗扬市，夏朗德省，法国 (© FRTimelapse/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-9 天堂的一角  
 
 卡韦希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
