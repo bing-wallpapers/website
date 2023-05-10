@@ -1,3 +1,9 @@
+## 2023-5-11 这个体育场建在你意想不到的地方  
+
+亨宁斯韦尔体育场，挪威 (© Morten Falch Sortland/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-10 金光中的灯塔  
 
 科尔杜昂灯塔，罗扬市，夏朗德省，法国 (© FRTimelapse/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
