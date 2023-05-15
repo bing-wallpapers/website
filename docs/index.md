@@ -1,3 +1,9 @@
+## 2023-5-16 一片平静的水域  
+
+在奥克弗诺基国家野生动物保护区划独木舟 (© Brad Beck/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-15 文化交汇的岛屿  
 
 莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛 (© Gavin Hellier/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
