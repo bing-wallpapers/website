@@ -1,3 +1,9 @@
+## 2023-5-22 为了每个人，保护地球的生物多样性  
+
+阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加 (© Kevin Wells/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-21 一座承载历史的桥  
 
 塞纳河，巴黎，法国 (© StockByM/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
