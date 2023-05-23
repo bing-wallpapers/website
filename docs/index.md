@@ -1,3 +1,9 @@
+## 2023-5-24 历史在这里复活  
+
+科孚岛旧城堡 (© Netfalls Remy Musser/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-23 保护我们的乌龟  
 
 西部箱龟 (© Tim Fitzharris/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
