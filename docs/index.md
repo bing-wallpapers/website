@@ -1,3 +1,9 @@
+## 2023-5-25 童话照进现实  
+
+法罗群岛，丹麦 (© miroslav_1/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-24 历史在这里复活  
 
 科孚岛旧城堡 (© Netfalls Remy Musser/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
