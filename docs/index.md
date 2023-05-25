@@ -1,3 +1,9 @@
+## 2023-5-26 在废墟中寻找美  
+
+西沙瓦寺，素可泰历史公园，泰国 (© Casper1774 Studio/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-25 童话照进现实  
 
 法罗群岛，丹麦 (© miroslav_1/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
