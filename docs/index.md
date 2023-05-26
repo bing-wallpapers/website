@@ -1,3 +1,9 @@
+## 2023-5-27 伸向天空  
+
+纳米比亚的植物 (© Fotofeeling/DEEPOL by plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-26 在废墟中寻找美  
 
 西沙瓦寺，素可泰历史公园，泰国 (© Casper1774 Studio/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
