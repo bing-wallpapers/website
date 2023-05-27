@@ -1,3 +1,9 @@
+## 2023-5-28 俯瞰层叠的梯田  
+
+乌布的德格拉朗梯田，印度尼西亚 (© Cavan Images/Adobe Stock) [4k Edition](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-27 伸向天空  
 
 纳米比亚的植物 (© Fotofeeling/DEEPOL by plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
