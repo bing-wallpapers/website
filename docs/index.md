@@ -1,3 +1,9 @@
+## 2023-5-30 墨西哥的隐秘海滩  
+
+埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥 (© ferrantraite/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-29 人间天堂  
 
 萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛 (© Hemis/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
