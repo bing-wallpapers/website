@@ -1,3 +1,9 @@
+## 2023-6-1 一望无际的湛蓝  
+
+大堡礁的航拍图，澳大利亚 (© AirPano LLC/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-5-31 一脸好奇的海獭宝宝  
 
 海獭宝宝，威廉王子湾，美国阿拉斯加州 (© Donald M. Jones/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
