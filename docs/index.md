@@ -1,3 +1,9 @@
+## 2023-6-2 被沙海包围  
+
+沙丘中的南非剑羚，纳米比亚 (© Sergey Gorshkov/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-1 一望无际的湛蓝  
 
 大堡礁的航拍图，澳大利亚 (© AirPano LLC/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.ReefAwareness_ZH-CN8840949729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
