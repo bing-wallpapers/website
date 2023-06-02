@@ -1,3 +1,9 @@
+## 2023-6-3 一睹最壮观的峡谷  
+
+大峡谷国家公园的南凯巴布步道，亚利桑那州，美国 (© Roman Khomlyak/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-2 被沙海包围  
 
 沙丘中的南非剑羚，纳米比亚 (© Sergey Gorshkov/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
