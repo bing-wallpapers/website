@@ -1,3 +1,9 @@
+## 2023-6-6 诺曼底登陆日  
+
+The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-5 风景如画的瀑布  
 
 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大 (© Delpixart/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
