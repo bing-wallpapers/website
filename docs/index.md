@@ -1,3 +1,9 @@
+## 2023-6-9 与太阳一同升起  
+
+卡帕多西亚, 土耳其 (© Anton Petrus/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-8 座头鲸唱歌的地方  
 
 座头鲸 (© Philip Thurston/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
