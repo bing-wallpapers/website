@@ -1,3 +1,9 @@
+## 2023-6-11 伺机而动  
+
+巨鹭，克鲁格国家公园，南非 (© Johan Swanepoel/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-9 与太阳一同升起  
 
 卡帕多西亚, 土耳其 (© Anton Petrus/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
