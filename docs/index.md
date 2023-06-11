@@ -1,3 +1,9 @@
+## 2023-6-12 大弯的生日  
+
+仙人掌植物，得克萨斯州大弯国家公园，美国 (© Tim Fitzharris/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-11 伺机而动  
 
 巨鹭，克鲁格国家公园，南非 (© Johan Swanepoel/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
