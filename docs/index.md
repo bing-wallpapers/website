@@ -1,3 +1,9 @@
+## 2023-6-15 一闪一闪亮晶晶（的小虫子）  
+
+同步萤火虫，大烟山国家公园，田纳西州，美国 (© Floris Van Bruegel/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-14 巴洛克风盛宴  
 
 多瑙河畔的帕绍市，巴伐利亚，德国 (© Scott Wilson/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
