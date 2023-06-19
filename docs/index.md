@@ -1,3 +1,9 @@
+## 2023-6-20 这只顶级掠食者是什么?  
+
+秃鹰，通加斯国家森林，阿拉斯加，美国 (© Jaynes Gallery/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-19 这只小可爱在哪里?  
 
 奔跑在诺曼底草地上的小狍，法国 (© Gerard Lacz/Minden) [4k Edition](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
