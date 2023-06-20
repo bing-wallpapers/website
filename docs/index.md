@@ -1,3 +1,9 @@
+## 2023-6-21 夏日仙境  
+
+夏日盛开的荷花 (© pandemin/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-20 这只顶级掠食者是什么?  
 
 秃鹰，通加斯国家森林，阿拉斯加，美国 (© Jaynes Gallery/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
