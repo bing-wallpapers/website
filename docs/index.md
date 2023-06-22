@@ -1,3 +1,9 @@
+## 2023-6-23 蝴蝶翩跹  
+
+帝王蝶在野花中取食 (© bookguy/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-22 仲夏端午  
 
 中国传统节日端午节 (© timekeep/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
