@@ -1,3 +1,9 @@
+## 2023-6-24 海湾之美  
+
+芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-23 蝴蝶翩跹  
 
 帝王蝶在野花中取食 (© bookguy/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
