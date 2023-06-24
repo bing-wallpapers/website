@@ -1,3 +1,9 @@
+## 2023-6-25 一座宝库  
+
+佩特拉的宝库，约旦 (© WitthayaP/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-24 海湾之美  
 
 芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
