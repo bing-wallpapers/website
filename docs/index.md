@@ -1,3 +1,9 @@
+## 2023-6-26 奢华的迷宫  
+
+维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-25 一座宝库  
 
 佩特拉的宝库，约旦 (© WitthayaP/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
