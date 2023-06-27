@@ -1,3 +1,9 @@
+## 2023-6-28 天堂之景！  
+
+韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-27 红石的土地  
 
 塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
