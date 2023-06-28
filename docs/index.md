@@ -1,3 +1,9 @@
+## 2023-6-29 赞美热带  
+
+巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz) [4k Edition](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-6-28 天堂之景！  
 
 韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
