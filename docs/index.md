@@ -1,3 +1,9 @@
+## 2023-7-2 一年已过半  
+
+费吕沃湖水道桥，荷兰 (© Frolova_Elena/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-1 超凡脱俗的风景  
 
 从意大利圣天使城堡俯瞰罗马 (© sborisov/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
