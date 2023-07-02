@@ -1,3 +1,9 @@
+## 2023-7-3 天气热得让人想嗷嗷叫！  
+
+班夫的土狼，加拿大 (© Harry Collins/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-2 一年已过半  
 
 费吕沃湖水道桥，荷兰 (© Frolova_Elena/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
