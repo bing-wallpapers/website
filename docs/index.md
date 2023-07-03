@@ -1,3 +1,9 @@
+## 2023-7-4 体验孤独与奇迹  
+
+草原国家公园，萨斯喀彻温省，加拿大 (© Robert Postma/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-3 天气热得让人想嗷嗷叫！  
 
 班夫的土狼，加拿大 (© Harry Collins/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
