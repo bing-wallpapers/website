@@ -1,3 +1,9 @@
+## 2023-7-6 接吻的企鹅  
+
+南跳岩企鹅，福克兰群岛 (© Tony Beck/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-5 挑选你的乐园  
 
 蒂莫尼港海滩，科孚岛，希腊 (© nantonov/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CorfuBeach_ZH-CN8660068587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
