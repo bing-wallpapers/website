@@ -1,3 +1,9 @@
+## 2023-7-7 巧克力爱好者最爱的水果  
+
+安班加的可可豆荚，马达加斯加 (© pierivb/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-6 接吻的企鹅  
 
 南跳岩企鹅，福克兰群岛 (© Tony Beck/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
