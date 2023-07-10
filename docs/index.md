@@ -1,3 +1,9 @@
+## 2023-7-11 万家灯火  
+
+Hong Kong SAR (© leungchopan/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-10 飘着香气的紫色海洋  
 
 萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
