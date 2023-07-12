@@ -1,3 +1,9 @@
+## 2023-7-13 行走在彩虹岩石上  
+
+张掖国家地质公园，甘肃，中国 (© TONNAJA/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-12 世界上最独特的海滩？  
 
 “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
