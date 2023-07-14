@@ -1,3 +1,9 @@
+## 2023-7-15 明信片般完美的风景  
+
+卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-14 一群鲨鱼正在狩猎  
 
 乌翅真鲨，马尔代夫 (© Filippo Bacci/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
