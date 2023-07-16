@@ -1,3 +1,9 @@
+## 2023-7-17 古老的中世纪奇迹  
+
+乌特湖的克拉夫特城堡，卡文郡，爱尔兰 (© 4H4 PH/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-16 溪水潺潺  
 
 熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
