@@ -1,3 +1,9 @@
+## 2023-7-21 将散落的岛屿连接在一起  
+
+斯托尔桑德特大桥，挪威 (© Morten Falch Sortland/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-20 为我们的近邻月球而庆祝  
 
 从美国宇航局猎户座飞船上看到的月球 (© NASA) [4k Edition](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
