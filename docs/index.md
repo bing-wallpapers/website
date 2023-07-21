@@ -1,3 +1,9 @@
+## 2023-7-22 想出去玩吗？  
+
+在一棵秃柏树上吊床露营，佛罗里达州，美国 (© Mac Stone/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-21 将散落的岛屿连接在一起  
 
 斯托尔桑德特大桥，挪威 (© Morten Falch Sortland/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
