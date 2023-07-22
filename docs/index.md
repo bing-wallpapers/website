@@ -1,3 +1,9 @@
+## 2023-7-23 你好，你在找“茶”吗?  
+
+爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡 (© Jeremy Woodhouse/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-22 想出去玩吗？  
 
 在一棵秃柏树上吊床露营，佛罗里达州，美国 (© Mac Stone/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
