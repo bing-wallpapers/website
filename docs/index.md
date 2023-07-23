@@ -1,3 +1,9 @@
+## 2023-7-24 堂/表兄弟姐妹日  
+
+斑马，塔兰吉雷国家公园，坦桑尼亚 (© cinoby/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-23 你好，你在找“茶”吗?  
 
 爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡 (© Jeremy Woodhouse/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
