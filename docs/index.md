@@ -1,3 +1,9 @@
+## 2023-7-25 粉红色，很好看  
+
+托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-24 堂/表兄弟姐妹日  
 
 斑马，塔兰吉雷国家公园，坦桑尼亚 (© cinoby/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
