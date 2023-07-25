@@ -1,3 +1,9 @@
+## 2023-7-26 和这些耐盐植物问好！  
+
+朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-25 粉红色，很好看  
 
 托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
