@@ -1,3 +1,9 @@
+## 2023-7-30 宛若仙境的帕卢斯田园  
+
+帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-29 国际老虎日  
 
 孟加拉虎，兰坦波尔国家公园，印度 (© Andy Rouse/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
