@@ -1,3 +1,9 @@
+## 2023-7-31 有人在家吗?  
+
+霍金山州立公园的岩石屋，俄亥俄州，美国 (© Kenneth Keifer/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-30 宛若仙境的帕卢斯田园  
 
 帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
