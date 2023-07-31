@@ -1,3 +1,9 @@
+## 2023-8-1 德纳里山的力量无可否认  
+
+从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-7-31 有人在家吗?  
 
 霍金山州立公园的岩石屋，俄亥俄州，美国 (© Kenneth Keifer/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
