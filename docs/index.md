@@ -1,3 +1,9 @@
+## 2023-8-2 大自然色调的调色板  
+
+圆顶礁国家公园的砂岩山丘，犹他州，美国 (© Amazing Aerial Premium/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-1 德纳里山的力量无可否认  
 
 从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
