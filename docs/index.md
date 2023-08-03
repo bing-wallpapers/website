@@ -1,3 +1,9 @@
+## 2023-8-4 一扇通向过去的窗  
+
+廷特恩修道院，威尔士 (© matthibcn/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-3 绿松石般的泉水  
 
 泽伦西自然保护区，斯洛文尼亚 (© Andrey Danilovich/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
