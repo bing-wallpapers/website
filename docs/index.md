@@ -1,3 +1,9 @@
+## 2023-8-6 一面反映大自然之美的镜子  
+
+镜池，长野，日本 (© Shoji Fujita/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-5 海鹦繁殖季  
 
 大西洋海鹦，冰岛 (© Peter Hering/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
