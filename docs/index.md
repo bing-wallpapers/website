@@ -1,3 +1,9 @@
+## 2023-8-8 恍若童话世界，胜似人间仙境  
+
+五花海，阿坝九寨沟旅游景区，四川省，中国 (© Michael Ver Sprill/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-7 地上一点，天上万千  
 
 博迪岛灯塔，马头城，北卡罗来纳州，美国 (© Michael Ver Sprill/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
