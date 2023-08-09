@@ -1,3 +1,9 @@
+## 2023-8-10 丛林之王？还真不是  
+
+马赛马拉的一头狮子，肯尼亚 (© Federico Veronesi/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-9 壮观的自然古迹  
 
 马苏阿的甜面包海蚀柱，撒丁岛，意大利 (© DaLiu/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
