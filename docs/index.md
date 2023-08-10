@@ -1,3 +1,9 @@
+## 2023-8-11 独一无二的一朵“水花”  
+
+'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰 (© Owen Humphreys/PA Images/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-10 丛林之王？还真不是  
 
 马赛马拉的一头狮子，肯尼亚 (© Federico Veronesi/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
