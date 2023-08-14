@@ -1,3 +1,9 @@
+## 2023-8-15 发光的矩形广场  
+
+四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-14 躲猫猫，我看见你了!  
 
 叶片上的小壁虎 (© Darren Greenwood/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
