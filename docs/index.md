@@ -1,3 +1,9 @@
+## 2023-8-18 挑战地心引力的世界奇观  
+
+哈利路亚山，张家界国家森林公园，中国 (© Amazing Aerial Premium/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-17 听它咆哮！  
 
 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
