@@ -1,3 +1,9 @@
+## 2023-8-19 我准备好拍特写了，松鼠先生  
+
+看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-18 挑战地心引力的世界奇观  
 
 哈利路亚山，张家界国家森林公园，中国 (© Amazing Aerial Premium/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
