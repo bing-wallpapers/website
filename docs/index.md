@@ -1,3 +1,9 @@
+## 2023-8-20 海上哨兵  
+
+起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-19 我准备好拍特写了，松鼠先生  
 
 看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
