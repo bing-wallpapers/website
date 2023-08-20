@@ -1,3 +1,9 @@
+## 2023-8-21 自内而外的光彩  
+
+翡翠湖，加拿大育空地区 (© artherng/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-20 海上哨兵  
 
 起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
