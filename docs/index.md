@@ -1,3 +1,9 @@
+## 2023-8-22 为罗马建筑“起立欢呼”  
+
+埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-21 自内而外的光彩  
 
 翡翠湖，加拿大育空地区 (© artherng/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
