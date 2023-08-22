@@ -1,3 +1,9 @@
+## 2023-8-23 溅起一潭水花  
+
+斯科加瀑布，冰岛 (© Maridav/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-22 为罗马建筑“起立欢呼”  
 
 埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
