@@ -1,3 +1,9 @@
+## 2023-8-24 自然“鳍”观  
+
+鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-23 溅起一潭水花  
 
 斯科加瀑布，冰岛 (© Maridav/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
