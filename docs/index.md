@@ -1,3 +1,9 @@
+## 2023-8-27 一个酷炫的凝灰岩火山口  
+
+城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-26 博物馆之夜  
 
 柏林大教堂和博物馆岛，柏林，德国 (© Rudy Balasko/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
