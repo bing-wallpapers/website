@@ -1,3 +1,9 @@
+## 2023-8-29 一头毛茸茸的牛  
+
+美洲野牛，大提顿国家公园，怀俄明州 (© Enrique Aguirre Aves/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-28 小心龙出没！  
 
 洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚 (© Benny Marty/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
