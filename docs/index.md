@@ -1,3 +1,9 @@
+## 2023-8-30 潜水员的“大伙伴”  
+
+鲸鲨，宁加洛珊瑚礁，西澳大利亚 (© Jason Edwards/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-29 一头毛茸茸的牛  
 
 美洲野牛，大提顿国家公园，怀俄明州 (© Enrique Aguirre Aves/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
