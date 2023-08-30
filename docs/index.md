@@ -1,3 +1,9 @@
+## 2023-8-31 你今天过得怎么样？  
+
+巨人柱，铁木森林国家纪念地，亚利桑那州，美国 (© Jack Dykinga/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-8-30 潜水员的“大伙伴”  
 
 鲸鲨，宁加洛珊瑚礁，西澳大利亚 (© Jason Edwards/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
