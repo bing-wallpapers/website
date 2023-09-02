@@ -1,3 +1,9 @@
+## 2023-9-3 高耸入云  
+
+曼哈顿鸟瞰图，纽约市，美国 (© Wojtek Zagorski/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-2 停下来喝点花蜜  
 
 艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© mallardg500/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
