@@ -1,3 +1,9 @@
+## 2023-9-4 城市中心的绿色天堂  
+
+布尔日的沼泽，法国 (© Tuul & Bruno Morandi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-3 高耸入云  
 
 曼哈顿鸟瞰图，纽约市，美国 (© Wojtek Zagorski/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
