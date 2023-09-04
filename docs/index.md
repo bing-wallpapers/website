@@ -1,3 +1,9 @@
+## 2023-9-5 数字合成的照片？不是吧！  
+
+塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-4 城市中心的绿色天堂  
 
 布尔日的沼泽，法国 (© Tuul & Bruno Morandi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
