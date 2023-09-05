@@ -1,3 +1,9 @@
+## 2023-9-6 准备好下锚了吗？  
+
+威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-5 数字合成的照片？不是吧！  
 
 塞格拉山，塞尼亚岛，挪威 (© imageBROKER/Moritz Wolf/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
