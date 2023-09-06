@@ -1,3 +1,9 @@
+## 2023-9-7 沙漠之舟  
+
+沙漠中的骆驼，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-6 准备好下锚了吗？  
 
 威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
