@@ -1,3 +1,9 @@
+## 2023-9-8 简·奥斯汀的文学圈  
+
+巴斯圆形广场，萨默塞特 ，英国 (© Gavin Hellier/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-7 沙漠之舟  
 
 沙漠中的骆驼，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
