@@ -1,3 +1,9 @@
+## 2023-9-9 皇家寺庙的废墟  
+
+大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-8 简·奥斯汀的文学圈  
 
 巴斯圆形广场，萨默塞特 ，英国 (© Gavin Hellier/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
