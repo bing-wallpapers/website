@@ -1,3 +1,9 @@
+## 2023-9-10 长者的智慧  
+
+斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-9 皇家寺庙的废墟  
 
 大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
