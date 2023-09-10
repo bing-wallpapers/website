@@ -1,3 +1,9 @@
+## 2023-9-11 历史、自然和美酒交汇之地  
+
+波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-10 长者的智慧  
 
 斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
