@@ -1,3 +1,9 @@
+## 2023-9-13 往事的低语  
+
+赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度 (© Images of india/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-12 下一站，地平线。  
 
 北海日落，诺德多夫，德国 (© Frederick Doerschem/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
