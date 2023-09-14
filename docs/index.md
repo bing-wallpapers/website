@@ -1,3 +1,9 @@
+## 2023-9-15 山谷女王  
+
+格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-14 只是两个朋友在玩闹而已  
 
 普氏野马，哈斯台国家公园，蒙古国 (© Ondrej Prosicky/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
