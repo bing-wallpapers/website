@@ -1,3 +1,9 @@
+## 2023-9-17 杂色短尾鴗  
+
+杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴 (© Bruno D'Amicis/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-16 系好你的安全带！  
 
 施布吕根山口，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
