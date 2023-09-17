@@ -1,3 +1,9 @@
+## 2023-9-18 黑夜里的“彩虹”  
+
+西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-17 杂色短尾鴗  
 
 杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴 (© Bruno D'Amicis/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
