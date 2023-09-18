@@ -1,3 +1,9 @@
+## 2023-9-19 壁花的避风港  
+
+哈德良长城，诺森伯兰郡国家公园，英国 (© daverhead/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-18 黑夜里的“彩虹”  
 
 西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
