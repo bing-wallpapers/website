@@ -1,3 +1,9 @@
+## 2023-9-21 表彰和平卫士  
+
+诺贝尔和平中心内部，奥斯陆，挪威 (© Ilyas Ayub/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-20 桥下和桥上的水流  
 
 罗马风格的渡槽，阿卡迪亚公园，波兰 (© PATSTOCK/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
