@@ -1,3 +1,9 @@
+## 2023-9-22 马尔萨拉，西西里岛的奇迹之一  
+
+马尔萨拉盐田，意大利 (© javarman3/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-21 表彰和平卫士  
 
 诺贝尔和平中心内部，奥斯陆，挪威 (© Ilyas Ayub/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
