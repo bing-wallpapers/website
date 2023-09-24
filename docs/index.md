@@ -1,3 +1,9 @@
+## 2023-9-25 躺下来放松一下吧  
+
+巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-24 时而潺潺细流，时而奔腾咆哮  
 
 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大 (© phototropic/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
