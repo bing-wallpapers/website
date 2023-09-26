@@ -1,3 +1,9 @@
+## 2023-9-27 缓慢平稳地攀登悬崖  
+
+克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-26 给滑板“冲浪”的波浪  
 
 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州 (© EXTREME-PHOTOGRAPHER/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
