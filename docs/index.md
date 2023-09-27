@@ -1,3 +1,9 @@
+## 2023-9-28 遵命！船长！  
+
+泰国商业港口附近的集装箱船 (© Suriyapong Thongsawang/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-27 缓慢平稳地攀登悬崖  
 
 克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
