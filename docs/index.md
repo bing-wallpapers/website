@@ -1,3 +1,9 @@
+## 2023-10-1 生日快乐  
+
+雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-9-30 啊！仙纳度  
 
 仙纳度国家公园的秋色，弗吉尼亚州 (© Michael Ver Sprill/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
