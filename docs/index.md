@@ -1,3 +1,9 @@
+## 2023-10-2 普罗旺斯大峡谷  
+
+韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国 (© luisapuccini/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.VerdonCanyon_ZH-CN8872507857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-10-1 生日快乐  
 
 雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
