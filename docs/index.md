@@ -1,3 +1,9 @@
+## 2023-10-4 狼蛛星云  
+
+狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜 (© NASA, ESA, CSA, STScI, Webb ERO Production Team) [4k Edition](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-10-3 圣灵群岛之旅  
 
 白天堂海滩，圣灵群岛，昆士兰州，澳大利亚 (© Coral Brunner/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
