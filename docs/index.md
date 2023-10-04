@@ -1,3 +1,9 @@
+## 2023-10-5 这是怎么做到的！  
+
+巴布亚企鹅，南极洲 (© Art Wolfe/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
+
+![](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp) 
+
 ## 2023-10-4 狼蛛星云  
 
 狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜 (© NASA, ESA, CSA, STScI, Webb ERO Production Team) [4k Edition](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)  
