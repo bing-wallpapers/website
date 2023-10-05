@@ -65,21 +65,20 @@ async function readAndUpdateMap(newData: BingImageData) {
 
 async function writeReadme(list: BingImageData[]) {
   const content = buildReadmeContent(list);
-  await writeFile("README.md", content);
-  const data = await readFile("README.md", "utf-8");
-  console.log("异步读取文件数据: " + data);
+  console.log("content", content);
+
+  const today = list[0];
+  const { date, chineseTitle } = today;
+
+  const allContent =
+    `# [Bing Wallpapers](https://bing-wallpapers.vercel.app)  \n\n ### ${date} ${chineseTitle}  \n\n ![4k版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${date}-4k.jpg?raw=true`})  \n\n` +
+    content;
+
+  await writeFile("README.md", allContent);
 }
 
 function buildReadmeContent(list: BingImageData[]) {
   const arr = [];
-  const today = list[0];
-  const { date, chineseTitle } = today;
-
-  arr.push(`# [Bing Wallpapers](https://bing-wallpapers.vercel.app)  \n\n`);
-  arr.push(`### ${date} ${chineseTitle}  \n\n`);
-  arr.push(
-    `![4k版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${date}-4k.jpg?raw=true`})  \n\n`
-  );
   arr.push(`|     |     |     | \n`);
   arr.push(`|:---:|:---:|:---:| \n`);
 
@@ -107,8 +106,8 @@ function buildReadmeContent(list: BingImageData[]) {
 async function writeIndex(list: BingImageData[]) {
   const content = buildIndexContent(list);
   await writeFile("./docs/index.md", content);
-  const data = await readFile("./docs/index.md", "utf-8");
-  console.log("异步读取文件数据: " + data);
+  // const data = await readFile("./docs/index.md", "utf-8");
+  // console.log("异步读取文件数据: " + data);
 }
 
 function buildIndexContent(list: BingImageData[]) {
