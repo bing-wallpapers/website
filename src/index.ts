@@ -79,8 +79,8 @@ async function writeReadme(list: BingImageData[]) {
 
 function buildReadmeContent(list: BingImageData[]) {
   const arr = [];
-  arr.push(`|     |     |     | \n`);
-  arr.push(`|:---:|:---:|:---:| \n`);
+  arr.push("|     |     |     | \n");
+  arr.push("|:---:|:---:|:---:| \n");
 
   list.slice(1).forEach((item, index) => {
     const data = `![](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-preview.jpg?raw=true`})<br> ${
@@ -96,8 +96,15 @@ function buildReadmeContent(list: BingImageData[]) {
     }
   });
 
-  if (list.length % 3 !== 0) {
-    arr.push("|\n");
+  // Remove the trailing "|" if it exists
+  if (list.length % 3 !== 1) {
+    // We started with slice(1), so adjust the remainder check accordingly
+    const lastElement = arr[arr.length - 1];
+    if (lastElement.endsWith("|")) {
+      arr[arr.length - 1] = lastElement.slice(0, -1) + "\n";
+    } else {
+      arr.push("|\n");
+    }
   }
 
   return arr.join("");
