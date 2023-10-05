@@ -10,7 +10,7 @@ interface BingImageData {
   chineseCopyright: string;
 }
 
-async function init() {
+async function fetchAndUpdateBingImages() {
   try {
     const bing = await fetch(
       "https://www.bing.com/HPImageArchive.aspx?format=js&idx=0&n=1&mkt=zh-CN"
@@ -19,16 +19,16 @@ async function init() {
     const { images = [] } = bingJson;
     const { url, title, copyright } = images[0] || {};
 
-    const newData = createNewData(url, title, copyright);
-    const list = await readAndUpdateMap(newData);
-    await writeReadme(list);
-    await writeIndex(list);
+    const newData = formatBingImageData(url, title, copyright);
+    const list = await readAndUpdateImageList(newData);
+    await writeToReadme(list);
+    await writeToIndexFile(list);
   } catch (e) {
     console.log("err", e);
   }
 }
 
-function createNewData(
+function formatBingImageData(
   url: string,
   title: string,
   copyright: string
@@ -55,7 +55,7 @@ function createNewData(
   };
 }
 
-async function readAndUpdateMap(newData: BingImageData) {
+async function readAndUpdateImageList(newData: BingImageData) {
   const data = await readFile("./map.json", "utf-8");
   const list = JSON.parse(data) as BingImageData[];
   list.unshift(newData);
@@ -63,42 +63,33 @@ async function readAndUpdateMap(newData: BingImageData) {
   return list;
 }
 
-async function writeReadme(list: BingImageData[]) {
-  const content = buildReadmeContent(list);
-  console.log("content", content);
-
+async function writeToReadme(list: BingImageData[]) {
+  const content = generateReadmeContent(list);
   const today = list[0];
   const { date, chineseTitle } = today;
-
   const allContent =
     `# [Bing Wallpapers](https://bing-wallpapers.vercel.app)  \n\n ### ${date} ${chineseTitle}  \n\n ![4k版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${date}-4k.jpg?raw=true`})  \n\n` +
     content;
-
   await writeFile("README.md", allContent);
 }
 
-function buildReadmeContent(list: BingImageData[]) {
+function generateReadmeContent(list: BingImageData[]) {
   const arr = [];
   arr.push("|     |     |     | \n");
   arr.push("|:---:|:---:|:---:| \n");
-
   list.slice(1).forEach((item, index) => {
     const data = `![](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-preview.jpg?raw=true`})<br> ${
       item.date
     } [4K 版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-4k.jpg?raw=true`}) <br> ${
       item.chineseTitle
     }`;
-
     if ((index + 1) % 3 === 0) {
       arr.push(`|${data}|\n`);
     } else {
       arr.push(`|${data}`);
     }
   });
-
-  // Remove the trailing "|" if it exists
   if (list.length % 3 !== 1) {
-    // We started with slice(1), so adjust the remainder check accordingly
     const lastElement = arr[arr.length - 1];
     if (lastElement.endsWith("|")) {
       arr[arr.length - 1] = lastElement.slice(0, -1) + "\n";
@@ -106,27 +97,22 @@ function buildReadmeContent(list: BingImageData[]) {
       arr.push("|\n");
     }
   }
-
   return arr.join("");
 }
 
-async function writeIndex(list: BingImageData[]) {
-  const content = buildIndexContent(list);
+async function writeToIndexFile(list: BingImageData[]) {
+  const content = generateIndexContent(list);
   await writeFile("./docs/index.md", content);
-  // const data = await readFile("./docs/index.md", "utf-8");
-  // console.log("异步读取文件数据: " + data);
 }
 
-function buildIndexContent(list: BingImageData[]) {
+function generateIndexContent(list: BingImageData[]) {
   const arr: string[] = [];
-
   list.forEach((item) => {
     arr.push(`## ${item.date} ${item.chineseTitle}  \n\n`);
     arr.push(`${item.chineseCopyright} [4k Edition](${item.bing4kUrl})  \n\n`);
     arr.push(`![](${item.bing1080Url}) \n\n`);
   });
-
   return arr.join("");
 }
 
-init();
+fetchAndUpdateBingImages();
