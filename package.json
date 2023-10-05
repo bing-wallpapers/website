@@ -1,5 +1,5 @@
 {
-  "name": "bing-wallpaper-node",
+  "name": "bing-wallpaper",
   "version": "0.0.1",
   "description": "auto download bing picture",
   "main": "lib/index.js",
