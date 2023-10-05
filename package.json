@@ -4,7 +4,7 @@
   "description": "auto download bing picture",
   "main": "lib/index.js",
   "scripts": {
-    "build": "tsc && node lib/index.js",
+    "build": "tsc && node lib/index.js && npm run prettier",
     "test": "echo \"Error: no test specified\" && exit 1",
     "docDev": "vitepress dev docs",
     "docBuild": "vitepress build docs",
