@@ -59,6 +59,41 @@ async function readAndUpdateImageList(newData: BingImageData) {
   const data = await readFile("./map.json", "utf-8");
   const list = JSON.parse(data) as BingImageData[];
   list.unshift(newData);
+
+  const dateMap: any = {};
+
+  list.map((item, index) => {
+    const mothDate = item.date.split("-").slice(0, 2).join("-");
+    if (!dateMap[mothDate]) {
+      const arr = [];
+      arr.push("|     |     |     | \n");
+      arr.push("|:---:|:---:|:---:| \n");
+      arr.push(
+        `![](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-preview.jpg?raw=true`})<br> ${
+          item.date
+        } |  [4K 版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-4k.jpg?raw=true`}) <br> ${
+          item.chineseTitle
+        }| `
+      );
+      dateMap[mothDate] = "" + arr.join("");
+    } else {
+      dateMap[
+        mothDate
+      ] += `![](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-preview.jpg?raw=true`})<br> ${
+        item.date
+      }|  [4K 版本](${`https://github.com/bing-wallpapers/wallpaper-china/blob/main/static/${item.date}-4k.jpg?raw=true`}) <br> ${
+        item.chineseTitle
+      }| `;
+    }
+  });
+
+  console.log(dateMap);
+  for (let key in dateMap) {
+    console.log(key);
+    const content = dateMap[key];
+    await writeFile(`./docs/${key}.md`, content);
+  }
+
   await writeFile("./map.json", JSON.stringify(list));
   return list;
 }
