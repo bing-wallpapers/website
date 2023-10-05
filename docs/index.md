@@ -1,3 +1,9 @@
+## 2023-10-6 大自然的威严
+
+杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国 (© Paul Massie Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-5 这是怎么做到的！
 
 巴布亚企鹅，南极洲 (© Art Wolfe/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
