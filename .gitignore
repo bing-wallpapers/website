@@ -1,4 +1,20 @@
-/node_modules
+# Node.js modules
+node_modules/
+
+# Logs
+npm-debug.log
+yarn-error.log
+
+# Runtime files
+*.swp
+*.swo
+
+# IDE / Editor directories
+.idea/
+.vscode/
+
+# macOS files
 .DS_Store
+
 /docs/.vitepress/dist
-lib
+/docs/.vitepress/cache
