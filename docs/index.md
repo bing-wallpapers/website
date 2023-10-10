@@ -1,3 +1,9 @@
+## 2023-10-11 消失的回声
+
+约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国 (© Ben Herndon/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-10 高高的落基山脉
 
 索普里斯山，科罗拉多州，美国 (© Jason Hatfield/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
