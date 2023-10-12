@@ -1,3 +1,9 @@
+## 2023-10-13 住在悬崖边的日子
+
+加尔加诺半岛上的维埃斯特，阿普利亚，意大利 (© Pilat666/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-12 趁热打铁，勿失良机！
 
 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国 (© Terry Eggers/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
