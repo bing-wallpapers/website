@@ -1,3 +1,9 @@
+## 2023-10-15 该位置已被占领
+
+躲在树皮中欧洲刺猬，苏塞克斯，英国 (© Jules Cox/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-14 它燃烧，燃烧，燃烧
 
 "火环”日环食，多哈，卡特尔 (© Sorin Furcoi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
