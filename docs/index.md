@@ -1,3 +1,9 @@
+## 2023-10-20 你想“挂”着玩吗？
+
+俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马 (© Suzi Eszterhas/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-19 去而复返
 
 Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
