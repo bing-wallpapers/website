@@ -1,3 +1,9 @@
+## 2023-10-22 一条用桁架架起来的公路
+
+哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国 (© Dan Mihai/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-21 哇，真是松了一口气！
 
 波斯古城波斯波利斯的浮雕，伊朗 (© Ozbalci/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
