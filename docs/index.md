@@ -1,3 +1,9 @@
+## 2023-10-24 这片迷雾密布的树林里潜藏着什么?
+
+桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-22 一条用桁架架起来的公路
 
 哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国 (© Dan Mihai/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
