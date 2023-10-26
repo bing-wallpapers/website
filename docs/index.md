@@ -1,3 +1,9 @@
+## 2023-10-27 魔法之河深不见底
+
+斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-26 落叶爱好者的天堂
 
 美泉宫公园的秋叶，维也纳，奥地利 (© rusm/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
