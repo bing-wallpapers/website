@@ -1,3 +1,9 @@
+## 2023-10-28 西班牙骑士的“劲敌”
+
+卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-27 魔法之河深不见底
 
 斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
