@@ -1,3 +1,9 @@
+## 2023-10-29 天黑后，你还敢待在这里吗？
+
+博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-28 西班牙骑士的“劲敌”
 
 卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
