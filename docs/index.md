@@ -1,3 +1,9 @@
+## 2023-10-30 黑衣美人
+
+普通乌鸦坐在树枝上 (© WildMedia/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-29 天黑后，你还敢待在这里吗？
 
 博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
