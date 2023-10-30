@@ -1,3 +1,9 @@
+## 2023-10-31 恶灵们只想玩个开心。
+
+万圣节南瓜灯 (© Bing Image Creator) [4k Edition](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-30 黑衣美人
 
 普通乌鸦坐在树枝上 (© WildMedia/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
