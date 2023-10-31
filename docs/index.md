@@ -1,3 +1,9 @@
+## 2023-11-1 你知道“阿尔萨斯之眼”吗？
+
+上巴尔城堡，阿尔萨斯，法国 (© Andrea Pistolesi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-10-31 恶灵们只想玩个开心。
 
 万圣节南瓜灯 (© Bing Image Creator) [4k Edition](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
