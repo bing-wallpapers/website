@@ -1,3 +1,9 @@
+## 2023-11-2 这里，此生值得一去
+
+恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-1 你知道“阿尔萨斯之眼”吗？
 
 上巴尔城堡，阿尔萨斯，法国 (© Andrea Pistolesi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
