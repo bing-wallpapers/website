@@ -1,3 +1,9 @@
+## 2023-11-3 发光的花朵
+
+卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国 (© Jim Patterson/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-2 这里，此生值得一去
 
 恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
