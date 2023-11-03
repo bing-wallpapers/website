@@ -1,3 +1,9 @@
+## 2023-11-4 为寒冷而生！
+
+美洲野牛，黄石国家公园，怀俄明州，美国 (© Gary Gray/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-3 发光的花朵
 
 卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国 (© Jim Patterson/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
