@@ -1,3 +1,9 @@
+## 2023-11-5 宁静之地
+
+石英岩地层，普拉亚德尔锡伦西奥，西班牙 (© Jean-Philippe Delobelle/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-4 为寒冷而生！
 
 美洲野牛，黄石国家公园，怀俄明州，美国 (© Gary Gray/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
