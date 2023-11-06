@@ -1,3 +1,9 @@
+## 2023-11-7 瞭望塔上，一睹奇景！
+
+Kirkilai 湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-6 照亮你忧郁的心
 
 佩霍湖，百内国家公园，智利南部 (© OST/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
