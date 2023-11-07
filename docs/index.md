@@ -1,3 +1,9 @@
+## 2023-11-8 冬日里的壮丽美景
+
+黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-7 瞭望塔上，一睹奇景！
 
 Kirkilai 湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
