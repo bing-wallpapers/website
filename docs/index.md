@@ -1,3 +1,9 @@
+## 2023-11-9 秋天的影子
+
+秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-8 冬日里的壮丽美景
 
 黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
