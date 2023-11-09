@@ -1,3 +1,9 @@
+## 2023-11-10 还不错的荒地
+
+恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-9 秋天的影子
 
 秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
