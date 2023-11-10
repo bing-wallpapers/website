@@ -1,3 +1,9 @@
+## 2023-11-11 如诗如画的地方
+
+富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-10 还不错的荒地
 
 恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
