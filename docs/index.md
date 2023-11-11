@@ -1,3 +1,9 @@
+## 2023-11-12 我所有的小鸭子们
+
+秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-11 如诗如画的地方
 
 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
