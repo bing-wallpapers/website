@@ -1,3 +1,9 @@
+## 2023-11-13 从树上到餐桌之上
+
+特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙 (© cinoby/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-12 我所有的小鸭子们
 
 秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
