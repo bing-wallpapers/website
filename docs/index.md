@@ -1,3 +1,9 @@
+## 2023-11-16 西方哲学的发源地
+
+雅典和卫城，希腊 (© Mlenny/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-14 让人又爱又恨的花田
 
 特卡波湖沿岸的鲁冰花，南岛，新西兰 (© Jeffrey Lewis/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
