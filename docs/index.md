@@ -1,3 +1,9 @@
+## 2023-11-17 该给靴子系上鞋带了！
+
+铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-16 西方哲学的发源地
 
 雅典和卫城，希腊 (© Mlenny/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
