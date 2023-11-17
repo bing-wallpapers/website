@@ -1,3 +1,9 @@
+## 2023-11-18 寒地温情
+
+北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大 (© Thorsten Milse/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-17 该给靴子系上鞋带了！
 
 铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
