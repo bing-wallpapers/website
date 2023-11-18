@@ -1,3 +1,9 @@
+## 2023-11-19 谨慎行事！
+
+Alam-Pedja 自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-18 寒地温情
 
 北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大 (© Thorsten Milse/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
