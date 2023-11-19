@@ -1,3 +1,9 @@
+## 2023-11-20 童话城堡
+
+科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲 (© Billy Stock/robertharding/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-19 谨慎行事！
 
 Alam-Pedja 自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
