@@ -1,3 +1,9 @@
+## 2023-11-22 人少景美的静谧之地
+
+大提顿国家公园，怀俄明州，美国 (© Westend61/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-21 欢迎来到这个世界！
 
 英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
