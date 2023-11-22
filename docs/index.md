@@ -1,3 +1,9 @@
+## 2023-11-23 从深海到天空
+
+泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙 (© Javier Martínez Morán/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-22 人少景美的静谧之地
 
 大提顿国家公园，怀俄明州，美国 (© Westend61/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
