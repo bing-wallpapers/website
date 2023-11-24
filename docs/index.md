@@ -1,3 +1,9 @@
+## 2023-11-25 永恒之城托莱多
+
+托莱多，西班牙 (© Carlos Fernandez/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-24 不一样的热带雨林
 
 奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国 (© James Randklev/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
