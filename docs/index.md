@@ -1,3 +1,9 @@
+## 2023-11-26 谁踩到树枝了?
+
+布拉德盖特公园的小鹿，莱斯特郡，英国 (© Chris Bainbridge/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-25 永恒之城托莱多
 
 托莱多，西班牙 (© Carlos Fernandez/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
