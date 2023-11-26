@@ -1,3 +1,9 @@
+## 2023-11-27 水上明镜
+
+内格罗河，亚马逊河流域，巴西 (© Timothy Allen/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-26 谁踩到树枝了?
 
 布拉德盖特公园的小鹿，莱斯特郡，英国 (© Chris Bainbridge/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
