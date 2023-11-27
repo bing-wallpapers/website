@@ -1,3 +1,9 @@
+## 2023-11-28 冬日私语
+
+阿西尼博因山省级公园，加拿大 (© matt macpherson/500px/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-11-27 水上明镜
 
 内格罗河，亚马逊河流域，巴西 (© Timothy Allen/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
