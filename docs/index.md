@@ -1,3 +1,9 @@
+## 2023-12-2 永恒的瑰宝
+
+瓜廖尔堡，中央邦，印度 (© Dmitry Rukhlenko-Photos of India/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-1 为最酷的地方欢呼！
 
 罗斯海的冰山，南极洲 (© Michel Roggo/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
