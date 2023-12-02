@@ -1,3 +1,9 @@
+## 2023-12-3 时光雕琢
+
+砂岩岩层，红悬崖国家保护区，亚利桑那州，美国 (© Yva Momatiuk and John Eastcott/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-2 永恒的瑰宝
 
 瓜廖尔堡，中央邦，印度 (© Dmitry Rukhlenko-Photos of India/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
