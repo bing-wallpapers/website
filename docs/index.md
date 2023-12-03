@@ -1,3 +1,9 @@
+## 2023-12-4 机敏可爱的捕猎高手
+
+一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚 (© Scott Davis/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-3 时光雕琢
 
 砂岩岩层，红悬崖国家保护区，亚利桑那州，美国 (© Yva Momatiuk and John Eastcott/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
