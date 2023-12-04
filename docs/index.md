@@ -1,3 +1,9 @@
+## 2023-12-5 童话故事中的场景
+
+天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国 (© Harald Nachtmann/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-4 机敏可爱的捕猎高手
 
 一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚 (© Scott Davis/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
