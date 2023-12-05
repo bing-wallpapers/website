@@ -1,3 +1,9 @@
+## 2023-12-6 穿过群山的蜿蜒小路
+
+达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden) [4k Edition](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-5 童话故事中的场景
 
 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国 (© Harald Nachtmann/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
