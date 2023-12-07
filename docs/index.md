@@ -1,3 +1,9 @@
+## 2023-12-8 不是那个泽西海岸!
+
+拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-7 欧洲大峡谷
 
 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
