@@ -1,3 +1,9 @@
+## 2023-12-9 出逃的美洲鸵
+
+原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-8 不是那个泽西海岸!
 
 拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
