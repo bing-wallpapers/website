@@ -1,3 +1,9 @@
+## 2023-12-10 一个让人沉思的地方
+
+林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-9 出逃的美洲鸵
 
 原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
