@@ -1,3 +1,9 @@
+## 2023-12-11 想看看黄山的全貌吗？
+
+黄山的冬天，中国 (© Hung Chung Chih/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-10 一个让人沉思的地方
 
 林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
