@@ -1,3 +1,9 @@
+## 2023-12-12 把你的世界涂成红色
+
+一品红 (© Yarygin/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-11 想看看黄山的全貌吗？
 
 黄山的冬天，中国 (© Hung Chung Chih/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
