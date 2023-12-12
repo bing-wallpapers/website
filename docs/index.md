@@ -1,3 +1,9 @@
+## 2023-12-13 小屋生活
+
+传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威 (© Roberto Moiola/Sysaworld/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-12 把你的世界涂成红色
 
 一品红 (© Yarygin/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
