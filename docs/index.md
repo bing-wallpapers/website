@@ -1,3 +1,9 @@
+## 2023-12-16 令人愉悦的忧郁蓝
+
+大广场，布鲁塞尔，比利时 (© Richard Taylor/Sime/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-15 圣诞老人的乐园
 
 罗瓦涅米的圣诞老人公园，拉普兰德，芬兰 (© lukutin77/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
