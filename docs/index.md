@@ -1,3 +1,9 @@
+## 2023-12-17 有羽毛的时尚达人
+
+波西米亚太平鸟栖息在树枝上，加拿大 (© Jim Cumming/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-16 令人愉悦的忧郁蓝
 
 大广场，布鲁塞尔，比利时 (© Richard Taylor/Sime/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
