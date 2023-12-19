@@ -1,3 +1,9 @@
+## 2023-12-20 多洛米蒂山之光
+
+圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利 (© Ingus Kruklitis/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-19 圣诞老人的波兰休息站
 
 城堡广场的圣诞树，华沙古城，波兰 (© Panther Media GmbH/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
