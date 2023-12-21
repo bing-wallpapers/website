@@ -1,3 +1,9 @@
+## 2023-12-22 冬季仙境中的精灵
+
+天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-21 斯洛文尼亚式的节日氛围
 
 卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
