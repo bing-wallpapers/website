@@ -1,3 +1,9 @@
+## 2023-12-23 它们看起来有话要说
+
+帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-22 冬季仙境中的精灵
 
 天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
