@@ -1,3 +1,9 @@
+## 2023-12-24 多么可爱的树枝啊！
+
+市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-23 它们看起来有话要说
 
 帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
