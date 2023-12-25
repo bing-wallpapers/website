@@ -1,3 +1,9 @@
+## 2023-12-26 节礼日快乐
+
+冬季日出，戴德姆，科尔切斯特，英格兰 (© George W Johnson/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-25 圣诞快乐，亲爱的朋友们！
 
 驯鹿在雪中奔跑，阿拉斯加，美国 (© Michael Quinton/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
