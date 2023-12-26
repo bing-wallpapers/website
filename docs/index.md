@@ -1,3 +1,9 @@
+## 2023-12-27 冰与火之地
+
+教堂山，斯奈山半岛，冰岛 (© Ratnakorn Piyasirisorost/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-26 节礼日快乐
 
 冬季日出，戴德姆，科尔切斯特，英格兰 (© George W Johnson/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
