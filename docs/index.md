@@ -1,3 +1,9 @@
+## 2023-12-28 跳出“濒危名单”
+
+座头鲸，迪斯科湾，格陵兰 (© Paul Souders/DanitaDelimont.com) [4k Edition](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-27 冰与火之地
 
 教堂山，斯奈山半岛，冰岛 (© Ratnakorn Piyasirisorost/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
