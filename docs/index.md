@@ -1,3 +1,9 @@
+## 2023-12-29 旧西街区的故事
+
+旧西街区，阿姆斯特丹 ，荷兰 (© George Pachantouris/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-28 跳出“濒危名单”
 
 座头鲸，迪斯科湾，格陵兰 (© Paul Souders/DanitaDelimont.com) [4k Edition](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
