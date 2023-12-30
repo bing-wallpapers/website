@@ -1,3 +1,9 @@
+## 2023-12-31 明年见!
+
+帕那空奇里上空的烟花，碧武里府,泰国 (© noomcpk/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-30 古石圈
 
 卡塞里格石圈，湖区国家公园 ，坎布里亚，英国 (© John Finney Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
