@@ -1,3 +1,9 @@
+## 2024-1-1 新年伊始
+
+睡在雪地里的赤狐，阿布鲁佐，意大利 (© marco vancini/500px/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2023-12-31 明年见!
 
 帕那空奇里上空的烟花，碧武里府,泰国 (© noomcpk/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
