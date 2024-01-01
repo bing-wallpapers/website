@@ -1,3 +1,9 @@
+## 2024-1-2 百年城堡
+
+贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度 (© Twenty47studio/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-1 新年伊始
 
 睡在雪地里的赤狐，阿布鲁佐，意大利 (© marco vancini/500px/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
