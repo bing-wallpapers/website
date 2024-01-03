@@ -1,3 +1,9 @@
+## 2024-1-4 雾锁金门
+
+金门大桥，旧金山，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-3 星光璀璨
 
 明尼汪卡湖，阿尔伯塔省，加拿大 (© Ken Phung/500px/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
