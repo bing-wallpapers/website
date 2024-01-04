@@ -1,3 +1,9 @@
+## 2024-1-5 是现实还是童话？
+
+巴伐利亚阿尔卑斯山脉，德国 (© JFL Photography/Adobe Stock) [4k Edition](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-4 雾锁金门
 
 金门大桥，旧金山，加利福尼亚州，美国 (© Jim Patterson/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
