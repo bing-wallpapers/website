@@ -1,3 +1,9 @@
+## 2024-1-7 大自然的平衡术
+
+魔鬼大理石保护区，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-6 薅一个苹果！
 
 冬天，雄性苍头燕雀栖息在海棠果树上 (© Mark Hamblin/2020VISION/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
