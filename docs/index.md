@@ -1,3 +1,9 @@
+## 2024-1-10 迎接挑战！
+
+米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊 (© Orestis Zoumpos/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-9 乘着热气球向上飞
 
 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
