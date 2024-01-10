@@ -1,3 +1,9 @@
+## 2024-1-11 长胡须的“流浪汉”
+
+雪中的欧亚猞猁 (© Jan Stria/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-10 迎接挑战！
 
 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊 (© Orestis Zoumpos/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
