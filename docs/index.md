@@ -1,3 +1,9 @@
+## 2024-1-12 北汉山的花岗岩山峰
+
+北汉山国立公园，韩国 (© TRAVEL TAKE PHOTOS/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-11 长胡须的“流浪汉”
 
 雪中的欧亚猞猁 (© Jan Stria/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
