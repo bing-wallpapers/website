@@ -1,3 +1,9 @@
+## 2024-1-14 白色羽毛交响曲
+
+屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com) [4k Edition](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-13 放慢脚步，享受旅途！
 
 哈纳之路，毛伊岛，夏威夷，美国 (© Matteo Colombo/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
