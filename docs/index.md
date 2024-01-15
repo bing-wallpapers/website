@@ -1,3 +1,9 @@
+## 2024-1-16 加拿大式的小憩和放松
+
+路易斯湖，班夫国家公园，阿尔伯塔省，加拿大 (© Mr. Simon Paul/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-15 在地球上还是在外星？
 
 瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
