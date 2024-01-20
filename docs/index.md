@@ -1,3 +1,9 @@
+## 2024-1-21 树梢上的故事
+
+欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-20 冰雪极地的马可罗尼企鹅
 
 马可罗尼企鹅，德雷克海峡，智利 (© Paul Souders/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
