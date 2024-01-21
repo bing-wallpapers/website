@@ -1,3 +1,9 @@
+## 2024-1-22 魔幻时刻
+
+冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-21 树梢上的故事
 
 欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
