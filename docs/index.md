@@ -1,3 +1,9 @@
+## 2024-1-25 通往过去的入口
+
+圣德温教堂的废墟，莫纳岛，威尔士，英国 (© Photos by R A Kearton/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-24 撒了一地的“钻石”
 
 钻石冰沙滩，冰岛 (© Rachid Dahnoun/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
