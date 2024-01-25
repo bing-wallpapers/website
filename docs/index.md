@@ -1,3 +1,9 @@
+## 2024-1-26 不是夜猫子
+
+北鹰鸮 (© Remo Savisaar/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-25 通往过去的入口
 
 圣德温教堂的废墟，莫纳岛，威尔士，英国 (© Photos by R A Kearton/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
