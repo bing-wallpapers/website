@@ -1,3 +1,9 @@
+## 2024-1-27 巴西大自然中的异域之美
+
+点嘴小巨嘴鸟，大西洋森林，巴西 (© aaprophoto/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-26 不是夜猫子
 
 北鹰鸮 (© Remo Savisaar/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
