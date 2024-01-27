@@ -1,3 +1,9 @@
+## 2024-1-28 从干涸的沙漠变成田园
+
+昆士兰州内陆海峡地区，澳大利亚 (© Southern Lightscapes-Australia/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-27 巴西大自然中的异域之美
 
 点嘴小巨嘴鸟，大西洋森林，巴西 (© aaprophoto/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
