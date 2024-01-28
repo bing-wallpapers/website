@@ -1,3 +1,9 @@
+## 2024-1-29 缓缓下降
+
+戈林格瀑布，泰嫩高，萨尔茨堡，奥地利 (© Frank Fischbach/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-1-28 从干涸的沙漠变成田园
 
 昆士兰州内陆海峡地区，澳大利亚 (© Southern Lightscapes-Australia/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
