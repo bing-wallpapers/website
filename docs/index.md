@@ -1,3 +1,9 @@
+## 2024-2-3 伪装的日子
+
+大运河与安康圣母大教堂，威尼斯，意大利 (© Rudy Balasko/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-2 菲尔会看到它的影子吗?
 
 从洞穴中探出头的土拨鼠 (© Scacciamosche/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
