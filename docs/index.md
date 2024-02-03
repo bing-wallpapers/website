@@ -1,3 +1,9 @@
+## 2024-2-4 雄伟的天然穹顶
+
+德弗塔什卡洞, Devetaki 村庄，保加利亚 (© Jasmine_K/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-3 伪装的日子
 
 大运河与安康圣母大教堂，威尼斯，意大利 (© Rudy Balasko/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
