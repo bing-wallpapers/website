@@ -1,3 +1,9 @@
+## 2024-2-5 唤醒沉睡的湖泊
+
+从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚 (© Rasica/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-4 雄伟的天然穹顶
 
 德弗塔什卡洞, Devetaki 村庄，保加利亚 (© Jasmine_K/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
