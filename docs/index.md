@@ -1,3 +1,9 @@
+## 2024-2-6 天然盆景
+
+盆景岩，太浩湖，内华达州，美国 (© Jim Patterson/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-5 唤醒沉睡的湖泊
 
 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚 (© Rasica/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
