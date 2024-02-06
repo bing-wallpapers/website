@@ -1,3 +1,9 @@
+## 2024-2-7 海浪中的避风港
+
+圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe) [4k Edition](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-6 天然盆景
 
 盆景岩，太浩湖，内华达州，美国 (© Jim Patterson/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
