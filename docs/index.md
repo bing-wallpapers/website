@@ -1,3 +1,9 @@
+## 2024-2-8 沉睡的巨人
+
+胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-7 海浪中的避风港
 
 圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe) [4k Edition](https://cn.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
