@@ -1,3 +1,9 @@
+## 2024-2-9 准备好庆祝了吗？
+
+灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-8 沉睡的巨人
 
 胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
