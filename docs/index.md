@@ -1,3 +1,9 @@
+## 2024-2-10 福起新岁，万事顺意
+
+中国舞狮，大年初一 (© SENEZ/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-9 准备好庆祝了吗？
 
 灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
