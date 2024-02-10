@@ -1,3 +1,9 @@
+## 2024-2-11 地球上的极乐世界
+
+乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊 (© Francesco Riccardo Iacomino/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-10 福起新岁，万事顺意
 
 中国舞狮，大年初一 (© SENEZ/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
