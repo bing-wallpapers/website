@@ -1,3 +1,9 @@
+## 2024-2-12 甜蜜的火山家园
+
+阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-11 地球上的极乐世界
 
 乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊 (© Francesco Riccardo Iacomino/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
