@@ -1,3 +1,9 @@
+## 2024-2-13 及时行乐！
+
+马里尼的狂欢节彩珠，新奥尔良，美国 (© Erik Pronske Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-12 甜蜜的火山家园
 
 阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
