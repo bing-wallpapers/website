@@ -1,3 +1,9 @@
+## 2024-2-14 更好地在一起
+
+丹顶鹤向伴侣鞠躬，北海道，日本 (© Steve Bloom Images/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-13 及时行乐！
 
 马里尼的狂欢节彩珠，新奥尔良，美国 (© Erik Pronske Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
