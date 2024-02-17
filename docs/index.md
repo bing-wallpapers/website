@@ -1,3 +1,9 @@
+## 2024-2-18 来一口新鲜空气
+
+抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-17 自然奇景
 
 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
