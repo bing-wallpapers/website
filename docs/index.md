@@ -1,3 +1,9 @@
+## 2024-2-19 一年四季都有鲜艳的色彩!
+
+鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙 (© Marco Bottigelli/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-18 来一口新鲜空气
 
 抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
