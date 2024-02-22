@@ -1,3 +1,9 @@
+## 2024-2-23 老鹰起舞的地方
+
+Haghartsin 修道院，迪利扬国家公园，亚美尼亚 (© Alexey Kharitonov/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-22 名副其实的“调色板盒子”
 
 布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚 (© Prasit photo/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
