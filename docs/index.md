@@ -1,3 +1,9 @@
+## 2024-2-24 点亮一盏明灯，愿您万事顺意！
+
+锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-23 老鹰起舞的地方
 
 Haghartsin 修道院，迪利扬国家公园，亚美尼亚 (© Alexey Kharitonov/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
