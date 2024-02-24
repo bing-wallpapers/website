@@ -1,3 +1,9 @@
+## 2024-2-25 薄雾笼罩
+
+考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-24 点亮一盏明灯，愿您万事顺意！
 
 锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
