@@ -1,3 +1,9 @@
+## 2024-2-26 深不见底的鸿沟
+
+大峡谷国家公园，亚利桑那州，美国 (© Jeremy Janus/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-25 薄雾笼罩
 
 考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
