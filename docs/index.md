@@ -1,3 +1,9 @@
+## 2024-2-28 随波逐流
+
+班堡城堡，诺森伯兰郡，英格兰 (© Blackbeck/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-27 在冰天雪地里玩耍
 
 玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国 (© Piriya Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
