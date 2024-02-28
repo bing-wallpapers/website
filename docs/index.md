@@ -1,3 +1,9 @@
+## 2024-2-29 多过一天
+
+欧亚红松鼠 (© Westend61/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-2-28 随波逐流
 
 班堡城堡，诺森伯兰郡，英格兰 (© Blackbeck/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
