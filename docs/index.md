@@ -1,3 +1,9 @@
+## 2024-3-2 西西里岛的风光
+
+莫迪卡，西西里岛，意大利 (© Sandro Bisaro/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-1 蝶舞翩跹
 
 德国草地上的蝴蝶 (© Albert Fertl/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.Schmetterlingswiese_ZH-CN3740804088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
