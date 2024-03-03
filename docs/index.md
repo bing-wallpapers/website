@@ -1,3 +1,9 @@
+## 2024-3-4 睡美人
+
+从蒙特维多看到的阿雷纳尔火山,哥斯达黎加 (© Lukas Bischoff/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-3 一位浑身斑点的杂技演员
 
 树上的豹子，克鲁格国家公园，南非 (© Tonino De Marco/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
