@@ -1,3 +1,9 @@
+## 2024-3-5 陷入循环之中？
+
+曼谷的交通圈和高速公路，泰国 (© Avigator Fortuner/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-4 睡美人
 
 从蒙特维多看到的阿雷纳尔火山,哥斯达黎加 (© Lukas Bischoff/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
