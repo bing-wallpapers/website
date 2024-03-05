@@ -1,3 +1,9 @@
+## 2024-3-6 尽情地嬉戏玩水吧！
+
+Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-5 陷入循环之中？
 
 曼谷的交通圈和高速公路，泰国 (© Avigator Fortuner/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
