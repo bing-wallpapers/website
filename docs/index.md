@@ -1,3 +1,9 @@
+## 2024-3-7 攀登新的高峰
+
+Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Sergi Boixader/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-6 尽情地嬉戏玩水吧！
 
 Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
