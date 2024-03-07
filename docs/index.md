@@ -1,3 +1,9 @@
+## 2024-3-8 世界新七大自然奇观之一
+
+伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-7 攀登新的高峰
 
 Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Sergi Boixader/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
