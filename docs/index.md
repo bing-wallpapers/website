@@ -1,3 +1,9 @@
+## 2024-3-9 因时间而改变
+
+比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-8 世界新七大自然奇观之一
 
 伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
