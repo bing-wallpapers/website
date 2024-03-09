@@ -1,3 +1,9 @@
+## 2024-3-10 是时候调整时间了
+
+圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州 (© Richard T. Nowitz/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-9 因时间而改变
 
 比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
