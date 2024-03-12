@@ -1,3 +1,9 @@
+## 2024-3-13 鸟瞰
+
+小红鹳飞越马加迪湖,肯尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-12 峡谷的守护者
 
 布莱斯峡谷国家公园，犹他州，美国 (© Jim Patterson/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
