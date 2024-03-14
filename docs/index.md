@@ -1,3 +1,9 @@
+## 2024-3-15 一抹春色
+
+安沙波利哥沙漠州立公园，美国加利福尼亚州 (© Stephen Matera/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-14 一个 π
 
 Wat Phra Ngam，大城府历史公园，泰国 (© boonchai wedmakawand/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
