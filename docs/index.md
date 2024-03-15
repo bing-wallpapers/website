@@ -1,3 +1,9 @@
+## 2024-3-16 被竹子包围了
+
+正在吃竹子的大熊猫，中国成都 (© Suzi Eszterhas/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-15 一抹春色
 
 安沙波利哥沙漠州立公园，美国加利福尼亚州 (© Stephen Matera/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
