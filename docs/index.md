@@ -1,3 +1,9 @@
+## 2024-3-17 今天，让我们穿绿衣裳吧！
+
+圣菲尼安湾，凯里郡，爱尔兰 (© Atlantide Phototravel/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-16 被竹子包围了
 
 正在吃竹子的大熊猫，中国成都 (© Suzi Eszterhas/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
