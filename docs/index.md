@@ -1,3 +1,9 @@
+## 2024-3-18 温柔的“沙丘巨人”
+
+大象岩，古城欧拉，沙特阿拉伯 (© Lubo Ivanko/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-17 今天，让我们穿绿衣裳吧！
 
 圣菲尼安湾，凯里郡，爱尔兰 (© Atlantide Phototravel/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
