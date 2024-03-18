@@ -1,3 +1,9 @@
+## 2024-3-19 春日私语
+
+盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-18 温柔的“沙丘巨人”
 
 大象岩，古城欧拉，沙特阿拉伯 (© Lubo Ivanko/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
