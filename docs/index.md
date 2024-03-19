@@ -1,3 +1,9 @@
+## 2024-3-20 粉嫩的春日美景
+
+鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-19 春日私语
 
 盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
