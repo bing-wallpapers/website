@@ -1,3 +1,9 @@
+## 2024-3-21 森林多美好呀！
+
+布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com) [4k Edition](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-20 粉嫩的春日美景
 
 鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
