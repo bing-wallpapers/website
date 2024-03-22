@@ -1,3 +1,9 @@
+## 2024-3-23 造雾
+
+巴西亚马逊上空巨大的砧状云 (© NASA) [4k Edition](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-22 我们在庆祝“水”？
 
 蓝泉，蒂怀霍步道，新西兰 (© Ian Beattie/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
