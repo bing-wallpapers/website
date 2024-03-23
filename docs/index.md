@@ -1,3 +1,9 @@
+## 2024-3-24 你能挪过去一点吗?
+
+樱花树枝上的灰胸绣眼鸟，韩国 (© TigerSeo/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-23 造雾
 
 巴西亚马逊上空巨大的砧状云 (© NASA) [4k Edition](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
