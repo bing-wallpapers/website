@@ -1,3 +1,9 @@
+## 2024-3-31 纯洁与优雅的象征
+
+潘塔纳尔湿地的大白鹭，巴西 (© Geraldi Corsi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-30 来自“颠倒世界”的问候
 
 睡在号角树上的褐喉树懒，哥斯达黎加 (© Juan Carlos Vindas/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
