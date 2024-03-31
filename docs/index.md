@@ -1,3 +1,9 @@
+## 2024-4-1 岌岌可危的冰川
+
+勃朗峰上的冰海，夏慕尼，法国 (© Hagenmuller Jean-François/Hemis/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-3-31 纯洁与优雅的象征
 
 潘塔纳尔湿地的大白鹭，巴西 (© Geraldi Corsi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
