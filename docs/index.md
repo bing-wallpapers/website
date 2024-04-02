@@ -1,3 +1,9 @@
+## 2024-4-3 希望彩虹留在这里
+
+At-Bashy 地区的彩虹，Kakshaal Too 山脉，纳伦省，吉尔吉斯斯坦 (© Emad aljumah/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-2 一缕阳光下的林地
 
 日德兰半岛的山毛榉树和野生海葵 ，丹麦 (© Nick Brundle Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
