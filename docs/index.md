@@ -1,3 +1,9 @@
+## 2024-4-4 沼泽地上的漫游者
+
+红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳 (© Ibrahim Suha Derbent/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-3 希望彩虹留在这里
 
 At-Bashy 地区的彩虹，Kakshaal Too 山脉，纳伦省，吉尔吉斯斯坦 (© Emad aljumah/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
