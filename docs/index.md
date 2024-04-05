@@ -1,3 +1,9 @@
+## 2024-4-6 皇家景观
+
+姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-5 潜入碧海
 
 从国际空间站拍摄的巴哈马群岛 (© NASA) [4k Edition](https://cn.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
