@@ -1,3 +1,9 @@
+## 2024-4-7 看，我是树枝整理师！
+
+奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国 (© Paul Souders/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-6 皇家景观
 
 姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
