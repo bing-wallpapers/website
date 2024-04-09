@@ -1,3 +1,9 @@
+## 2024-4-10 猫头鹰在你身边！
+
+洞穴附近的穴小鸮雏鸟，怀俄明州，美国 (© Danita Delimont/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-9 踮起脚尖，穿过郁金香
 
 郁金香田，斯卡吉特山谷，华盛顿州，美国 (© Claudia Cooper/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
