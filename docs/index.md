@@ -1,3 +1,9 @@
+## 2024-4-14 岩石保龄球
+
+保龄球海滩的日落，门多西诺县，加利福尼亚，美国 (© Melo Qiao/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-13 花开正满枝
 
 春天的苹果树，德国 (© Smileus/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
