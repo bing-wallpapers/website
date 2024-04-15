@@ -1,3 +1,9 @@
+## 2024-4-16 灯光，相机，纽约！
+
+暮色中的曼哈顿下城联合广场，纽约，美国 (© Sean Pavone/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-15 介于文艺复兴与独创性之间
 
 香波城堡，中央-卢瓦尔河谷大区，法国 (© Susanne Kremer/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
