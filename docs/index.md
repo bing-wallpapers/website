@@ -1,3 +1,9 @@
+## 2024-4-18 名誉之墙
+
+中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-17 我是不是睡得太久了？
 
 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国 (© Scott Suriano/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
