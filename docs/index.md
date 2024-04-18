@@ -1,3 +1,9 @@
+## 2024-4-19 历史的轮回
+
+布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-18 名誉之墙
 
 中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
