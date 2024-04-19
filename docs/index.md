@@ -1,3 +1,9 @@
+## 2024-4-20 保存，保护，享受！
+
+日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-19 历史的轮回
 
 布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
