@@ -1,3 +1,9 @@
+## 2024-4-21 未选择的路
+
+Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-20 保存，保护，享受！
 
 日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
