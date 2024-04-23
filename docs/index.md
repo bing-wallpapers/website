@@ -1,3 +1,9 @@
+## 2024-4-24 嘿，今天长势如何？
+
+盛开的白延龄草，安大略省，加拿大 (© Jun Zhang/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-23 预订已满！
 
 三一学院图书馆，都柏林，爱尔兰 (© Lukas Bischoff/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
