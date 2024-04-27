@@ -1,3 +1,9 @@
+## 2024-4-28 去公园走走吧！
+
+瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-27 观鸟的时间到了！
 
 澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国 (© yhelfman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
