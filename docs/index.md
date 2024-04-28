@@ -1,3 +1,9 @@
+## 2024-4-29 被保存得很好的古建筑
+
+福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-28 去公园走走吧！
 
 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
