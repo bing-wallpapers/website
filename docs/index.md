@@ -1,3 +1,9 @@
+## 2024-4-30 “草原大喵”的完美速度
+
+清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚 (© Paul Souders/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-4-29 被保存得很好的古建筑
 
 福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
