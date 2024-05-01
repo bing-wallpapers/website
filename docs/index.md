@@ -1,3 +1,9 @@
+## 2024-5-2 “月球一日游”
+
+蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国 (© Alan Majchrowicz/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-1 夏威夷的花环节
 
 夏威夷花环 (© Jotika Pun/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
