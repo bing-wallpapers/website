@@ -1,3 +1,9 @@
+## 2024-5-4 愿原力与你同在！
+
+斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰 (© MNStudio/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-3 最热的地方也有凉爽之处
 
 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州 (© Charles Harker/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
