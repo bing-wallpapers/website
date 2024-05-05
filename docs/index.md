@@ -1,3 +1,9 @@
+## 2024-5-6 峰区一瞥
+
+罗奇斯山脊，英格兰峰区 (© George W Johnson/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-5 为墨西哥干杯!
 
 圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥 (© Mint Images/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
