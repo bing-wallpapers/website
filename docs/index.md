@@ -1,3 +1,9 @@
+## 2024-5-7 水影里的小黄鸭
+
+一只小鸭子在水草地上游泳，萨福克郡，英国 (© Nick Hurst/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-6 峰区一瞥
 
 罗奇斯山脊，英格兰峰区 (© George W Johnson/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
