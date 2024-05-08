@@ -1,3 +1,9 @@
+## 2024-5-9 恣意绽放的郁金香
+
+埃米尔甘公园的郁金香，伊斯坦布尔，土耳其 (© Ozbalci/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-8 海港景色
 
 伊夫堡，马赛，法国 (© Sergii Figurnyi/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
