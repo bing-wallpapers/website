@@ -1,3 +1,9 @@
+## 2024-5-10 岛屿在召唤！
+
+米苏尔岛，拉贾安帕群岛，印度尼西亚 (© Giordano Cipriani/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-9 恣意绽放的郁金香
 
 埃米尔甘公园的郁金香，伊斯坦布尔，土耳其 (© Ozbalci/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
