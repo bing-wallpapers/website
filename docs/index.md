@@ -1,3 +1,9 @@
+## 2024-5-14 “深渊”探险
+
+通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-13 鱼眼视角
 
 鱼河大峡谷，纳米比亚 (© R. M. Nunes/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
