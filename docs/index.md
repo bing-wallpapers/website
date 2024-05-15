@@ -1,3 +1,9 @@
+## 2024-5-16 这片水域里有很多故事！
+
+维戈的兰德大桥，西班牙 (© Julio Conde/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-15 迷失在蓝色的美丽国度
 
 焦特布尔蓝色之城，印度 (© cinoby/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
