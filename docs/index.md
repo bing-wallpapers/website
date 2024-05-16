@@ -1,3 +1,9 @@
+## 2024-5-17 今天不是无关紧要的一天
+
+塔兰吉雷国家公园的非洲象家族，坦桑尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-16 这片水域里有很多故事！
 
 维戈的兰德大桥，西班牙 (© Julio Conde/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
