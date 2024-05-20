@@ -1,3 +1,9 @@
+## 2024-5-21 充满茶香的一天
+
+卡梅隆高地茶园，马拉西亚 (© alex cheong/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-20 我简直不敢相信！
 
 蜜蜂照料蜂巢 (© Simun Ascic/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
