@@ -1,3 +1,9 @@
+## 2024-5-23 寻找一个“庇护所”
+
+印度星龟，斯里兰卡 (© Robin Chittenden/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-22 深入了解生物多样性
 
 塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚 (© Ignacio Palacios/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
