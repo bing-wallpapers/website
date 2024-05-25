@@ -1,3 +1,9 @@
+## 2024-5-26 野性与自由
+
+香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国 (© Alan Majchrowicz/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-25 沙丘守护者
 
 阿伊特本哈杜，摩洛哥 (© Grant Faint/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
