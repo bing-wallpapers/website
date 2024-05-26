@@ -1,3 +1,9 @@
+## 2024-5-27 我们去乘船吧！
+
+塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-26 野性与自由
 
 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国 (© Alan Majchrowicz/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
