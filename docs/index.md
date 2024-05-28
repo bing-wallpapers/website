@@ -1,3 +1,9 @@
+## 2024-5-29 水獭在看什么？
+
+青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛 (© Neil Henderson/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-28 屹立于世界之巅
 
 罗萨诺修道院，迈泰奥拉，色萨利 ，希腊 (© Marius Roman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
