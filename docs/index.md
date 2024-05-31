@@ -1,3 +1,9 @@
+## 2024-6-1 带你游花园
+
+帝王棕榈树，里约热内卢植物园，巴西 (© Marcia Silva de Mendonca/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-5-31 绿意盎然的宜人之地
 
 冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰 (© Derek Croucher/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
