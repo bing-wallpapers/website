@@ -1,3 +1,9 @@
+## 2024-6-2 黑夜中的一盏明灯
+
+普卢马纳克的灯塔，阿摩尔滨海省，法国 (© Christian Handl/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-1 带你游花园
 
 帝王棕榈树，里约热内卢植物园，巴西 (© Marcia Silva de Mendonca/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
