@@ -1,3 +1,9 @@
+## 2024-6-3 一起骑车去兜风吧
+
+哥本哈根的自行车，丹麦 (© Alphotographic/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-2 黑夜中的一盏明灯
 
 普卢马纳克的灯塔，阿摩尔滨海省，法国 (© Christian Handl/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
