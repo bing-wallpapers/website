@@ -1,3 +1,9 @@
+## 2024-6-4 物以类聚
+
+黑胸蜂虎，巴迪亚国家公园，尼泊尔 (© PACO COMO/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-3 一起骑车去兜风吧
 
 哥本哈根的自行车，丹麦 (© Alphotographic/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
