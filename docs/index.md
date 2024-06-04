@@ -1,3 +1,9 @@
+## 2024-6-5 世界环境日快乐！
+
+马达加斯加的马苏阿拉国家公园 (© Dennis van de Water/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-4 物以类聚
 
 黑胸蜂虎，巴迪亚国家公园，尼泊尔 (© PACO COMO/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
