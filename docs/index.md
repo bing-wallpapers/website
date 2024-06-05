@@ -1,3 +1,9 @@
+## 2024-6-6 有趣的野生动物!
+
+蓬德高鸟类公园的大红鹳，卡玛格，法国 (© Yann Guichaoua-Photos/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-5 世界环境日快乐！
 
 马达加斯加的马苏阿拉国家公园 (© Dennis van de Water/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
