@@ -1,3 +1,9 @@
+## 2024-6-9 令人窒息的寂静
+
+巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙 (© Aliaume Chapelle/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-8 河流的交汇
 
 复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国 (© Patrick J. Endres/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
