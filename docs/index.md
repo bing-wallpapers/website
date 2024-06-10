@@ -1,3 +1,9 @@
+## 2024-6-11 这些羚羊是真正的珍宝
+
+热带稀树草原上的南非剑羚，博茨瓦纳大草原 (© Karine Aigner/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-10 比赛将在这里开始！
 
 龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
