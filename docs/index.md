@@ -1,3 +1,9 @@
+## 2024-6-12 星光盛宴
+
+大弯国家公园上空的银河，得克萨斯州，美国 (© wisanuboonrawd/Adobe Stock) [4k Edition](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-11 这些羚羊是真正的珍宝
 
 热带稀树草原上的南非剑羚，博茨瓦纳大草原 (© Karine Aigner/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
