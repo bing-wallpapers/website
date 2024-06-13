@@ -1,3 +1,9 @@
+## 2024-6-14 孤独，但不寂寞
+
+佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-13 瓷砖的故事
 
 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
