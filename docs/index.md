@@ -1,3 +1,9 @@
+## 2024-6-15 有志者事竟成
+
+在纳扎雷冲浪的冲浪者，葡萄牙 (© Rui Caria/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-14 孤独，但不寂寞
 
 佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
