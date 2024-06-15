@@ -1,3 +1,9 @@
+## 2024-6-16 这位父亲棋高一着
+
+赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-15 有志者事竟成
 
 在纳扎雷冲浪的冲浪者，葡萄牙 (© Rui Caria/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
