@@ -1,3 +1,9 @@
+## 2024-6-17 传播花粉
+
+绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加 (© adrian hepworth/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-16 这位父亲棋高一着
 
 赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
