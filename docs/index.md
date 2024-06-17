@@ -1,3 +1,9 @@
+## 2024-6-18 鲁冰花盛放的夏季
+
+日出时的羽扇豆田和教堂，斯奈山半岛，冰岛 (© Matteo Colombo/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-17 传播花粉
 
 绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加 (© adrian hepworth/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
