@@ -1,3 +1,9 @@
+## 2024-6-19 一座历史古迹
+
+库克斯港的水塔，德国 (© Andreas Vogel/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-18 鲁冰花盛放的夏季
 
 日出时的羽扇豆田和教堂，斯奈山半岛，冰岛 (© Matteo Colombo/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
