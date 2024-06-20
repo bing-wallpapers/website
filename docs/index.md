@@ -1,3 +1,9 @@
+## 2024-6-21 清凉的湖水
+
+蓝色水面上的渔船航拍图，郴州市，湖南省，中国 (© Haitong Yu/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-20 夏天的脚步近了
 
 科基诺，古代巨石观测站，北马其顿 (© stoimilov/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
