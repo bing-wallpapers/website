@@ -1,3 +1,9 @@
+## 2024-6-22 迷失在迷雾之中
+
+亚马逊雨林，巴西 (© Claus Meyer/plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-21 清凉的湖水
 
 蓝色水面上的渔船航拍图，郴州市，湖南省，中国 (© Haitong Yu/Getty images) [4k Edition](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
