@@ -1,3 +1,9 @@
+## 2024-6-23 漆黑的夜晚，城市的灯光
+
+达卡环形交叉路口的鸟瞰图，孟加拉国 (© Azim Khan Ronnie/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-22 迷失在迷雾之中
 
 亚马逊雨林，巴西 (© Claus Meyer/plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
