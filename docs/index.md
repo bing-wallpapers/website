@@ -1,3 +1,9 @@
+## 2024-6-24 让人心旷神怡的美景
+
+克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚 (© Shane P. White/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-23 漆黑的夜晚，城市的灯光
 
 达卡环形交叉路口的鸟瞰图，孟加拉国 (© Azim Khan Ronnie/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
