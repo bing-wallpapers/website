@@ -1,3 +1,9 @@
+## 2024-6-30 你不会忘记它的！
+
+乌布寺庙的石雕,巴厘岛,印度尼西亚 (© R. Schönebaum/plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-29 只见树木，不见森林
 
 宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国 (© Martin Ruegner/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
