@@ -1,3 +1,9 @@
+## 2024-7-1 为加拿大干杯
+
+菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大 (© davemantel/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-6-30 你不会忘记它的！
 
 乌布寺庙的石雕,巴厘岛,印度尼西亚 (© R. Schönebaum/plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
