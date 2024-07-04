@@ -1,3 +1,9 @@
+## 2024-7-5 邂逅美丽海岸线
+
+丹翠雨林的诺亚海滩，昆士兰州，澳大利亚 (© bjeayes/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-4 风景如画的白色小镇
 
 扎哈拉德拉谢拉，安达卢西亚，西班牙 (© Francesco Carovillano/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
