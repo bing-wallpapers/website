@@ -1,3 +1,9 @@
+## 2024-7-6 让我们扬帆起航！
+
+从康威河眺望康威城堡，威尔士 (© David Chapman/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-5 邂逅美丽海岸线
 
 丹翠雨林的诺亚海滩，昆士兰州，澳大利亚 (© bjeayes/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
