@@ -1,3 +1,9 @@
+## 2024-7-7 阳光下的梯田
+
+越南安沛省木仓寨的水稻梯田 (© Kiatanan Sugsompian/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-6 让我们扬帆起航！
 
 从康威河眺望康威城堡，威尔士 (© David Chapman/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
