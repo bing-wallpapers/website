@@ -1,3 +1,9 @@
+## 2024-7-9 千仞高壁
+
+阿根廷拉里奥哈省塔兰帕亚国家公园 (© Gonzalo Azumendi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-8 一剂抗氧化剂
 
 野生蓝莓 (© Baac3nes/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
