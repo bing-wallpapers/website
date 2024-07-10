@@ -1,3 +1,9 @@
+## 2024-7-11 你是 81 亿人口中的一员
+
+甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-10 感恩的巨嘴鸟
 
 领簇舌巨嘴鸟，哥斯达黎加 (© Juan Carlos Vindas/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
