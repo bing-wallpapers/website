@@ -1,3 +1,9 @@
+## 2024-7-12 风雨无阻
+
+雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-11 你是 81 亿人口中的一员
 
 甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
