@@ -1,3 +1,9 @@
+## 2024-7-14 鲨鱼保护日
+
+女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-13 快看，这是沉积岩哦
 
 卡帕多西亚的童话烟囱和窑洞，土耳其 (© Storm Is Me/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
