@@ -1,3 +1,9 @@
+## 2024-7-15 宁静惬意的海滨风光
+
+立石公园，神奈川县，日本 (© blew_s/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-14 鲨鱼保护日
 
 女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
