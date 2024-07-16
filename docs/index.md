@@ -1,3 +1,9 @@
+## 2024-7-17 高耸入云的历史建筑
+
+德国中世纪城市罗滕堡 (© kanuman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-16 挖掘过去
 
 斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰 (© Paul Williams - FunkyStock/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
