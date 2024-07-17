@@ -1,3 +1,9 @@
+## 2024-7-18 意义深远
+
+Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-17 高耸入云的历史建筑
 
 德国中世纪城市罗滕堡 (© kanuman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
