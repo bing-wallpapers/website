@@ -1,3 +1,9 @@
+## 2024-7-19 巧妙的伪装
+
+河岸上的一只年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-18 意义深远
 
 Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
