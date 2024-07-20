@@ -1,3 +1,9 @@
+## 2024-7-21 香料岛之旅
+
+肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-20 到月亮上去
 
 月球 (© Victor Blum/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
