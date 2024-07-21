@@ -1,3 +1,9 @@
+## 2024-7-22 和我一起避暑吧！
+
+树上的中国小熊猫, 成都, 四川省, 中国 (© Jackyenjoyphotography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-21 香料岛之旅
 
 肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
