@@ -1,3 +1,9 @@
+## 2024-7-23 历史的回响
+
+迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-22 和我一起避暑吧！
 
 树上的中国小熊猫, 成都, 四川省, 中国 (© Jackyenjoyphotography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
