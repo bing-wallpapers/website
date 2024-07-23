@@ -1,3 +1,9 @@
+## 2024-7-24 可爱的羊咩咩一家
+
+北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-23 历史的回响
 
 迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
