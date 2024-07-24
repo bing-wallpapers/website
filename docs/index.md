@@ -1,3 +1,9 @@
+## 2024-7-25 深入其中
+
+大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-24 可爱的羊咩咩一家
 
 北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
