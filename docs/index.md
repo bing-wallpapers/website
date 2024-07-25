@@ -1,3 +1,9 @@
+## 2024-7-26 比赛开始
+
+塞纳河上的新桥，巴黎，法国 (© f11photo/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-25 深入其中
 
 大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
