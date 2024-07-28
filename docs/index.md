@@ -1,3 +1,9 @@
+## 2024-7-29 咆哮与探索
+
+科贝国家公园的老虎兄弟，北阿坎德邦，印度 (© Sourabh Bharti/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-28 色彩斑斓的海岸线
 
 斯科讷省海滩上的浴场小屋，瑞典 (© Martin Wahlborg/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
