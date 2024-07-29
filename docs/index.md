@@ -1,3 +1,9 @@
+## 2024-7-30 中世纪的曼哈顿
+
+圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-29 咆哮与探索
 
 科贝国家公园的老虎兄弟，北阿坎德邦，印度 (© Sourabh Bharti/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
