@@ -1,3 +1,9 @@
+## 2024-7-31 这里有“胡图”吗？
+
+石林，日落点，布莱斯峡谷国家公园，犹他州，美国 (© Tim Fitzharris/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-7-30 中世纪的曼哈顿
 
 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
