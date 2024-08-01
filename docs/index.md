@@ -1,3 +1,9 @@
+## 2024-8-2 彩虹之下的某个地方
+
+象鼻湾，维尔京群岛国家公园，圣约翰岛 (© wheatley/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-1 物价喜人
 
 卡普泰湖水上市场，兰加马蒂，孟加拉 (© Azim Khan Ronnie/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
