@@ -1,3 +1,9 @@
+## 2024-8-3 武隆景区的“三生三世”
+
+天生三桥，重庆武隆岩溶国家地质公园，中国 (© Pav-Pro Photography Ltd/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-2 彩虹之下的某个地方
 
 象鼻湾，维尔京群岛国家公园，圣约翰岛 (© wheatley/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
