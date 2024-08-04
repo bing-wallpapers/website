@@ -1,3 +1,9 @@
+## 2024-8-5 一片紫色的海洋
+
+薰衣草田，赫特福德郡 ，英格兰，英国 (© George W Johnson/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-4 我是你的朋友
 
 黑斑羚和红嘴牛椋鸟，南非 (© Matrishva Vyas/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
