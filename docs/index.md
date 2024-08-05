@@ -1,3 +1,9 @@
+## 2024-8-6 迎合所有人口味的景点
+
+莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-5 一片紫色的海洋
 
 薰衣草田，赫特福德郡 ，英格兰，英国 (© George W Johnson/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
