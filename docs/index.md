@@ -1,3 +1,9 @@
+## 2024-8-7 不止是航海需要它
+
+圣约瑟夫北码头内灯和外灯，密歇根州，美国 (© Kenneth Keifer/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-6 迎合所有人口味的景点
 
 莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
