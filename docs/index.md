@@ -1,3 +1,9 @@
+## 2024-8-9 弘扬土著文化
+
+库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-8 小猫头鹰瞪了你一眼
 
 横斑腹小鸮，曼谷，泰国 (© Tfilm/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
