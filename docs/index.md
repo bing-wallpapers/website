@@ -1,3 +1,9 @@
+## 2024-8-10 星空下的约书亚树
+
+约书亚树国家公园，加利福尼亚州，美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-9 弘扬土著文化
 
 库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
