@@ -1,3 +1,9 @@
+## 2024-8-13 亚得里亚海高地
+
+特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚 (© Ilija Ascic/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-12 你的声音嘹亮而清晰
 
 非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
