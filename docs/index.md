@@ -1,3 +1,9 @@
+## 2024-8-15 “洞”之新世界
+
+韩松洞，风牙者榜国家公园，越南 (© Geng Xu/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-14 今天感觉很精神
 
 澳洲魔蜥，瓦塔卡国家公园，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
