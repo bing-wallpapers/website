@@ -1,3 +1,9 @@
+## 2024-8-16 系好安全带！
+
+长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-15 “洞”之新世界
 
 韩松洞，风牙者榜国家公园，越南 (© Geng Xu/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
