@@ -1,3 +1,9 @@
+## 2024-8-20 鹿和羚羊嬉戏的地方
+
+大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-19 铿锵有力的打击乐
 
 Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
