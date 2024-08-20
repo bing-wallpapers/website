@@ -1,3 +1,9 @@
+## 2024-8-21 等待前往加拉帕戈斯群岛
+
+纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-20 鹿和羚羊嬉戏的地方
 
 大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
