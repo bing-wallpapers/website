@@ -1,3 +1,9 @@
+## 2024-8-22 晨曦之光
+
+海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-21 等待前往加拉帕戈斯群岛
 
 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
