@@ -1,3 +1,9 @@
+## 2024-8-24 尽享森林与水域之美
+
+卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国 (© Cavan Images/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-23 通往过去的大门
 
 帕侬蓝寺，武里南府，泰国 (© Banjongseal324/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
