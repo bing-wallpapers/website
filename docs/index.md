@@ -1,3 +1,9 @@
+## 2024-8-28 比赛开始！
+
+蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-27 沼泽里的生活真美好！
 
 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
