@@ -1,3 +1,9 @@
+## 2024-8-29 加泰罗尼亚式的悬念
+
+富利特堡-德拉罗卡，加泰罗尼亚，西班牙 (© Eloi_Omella/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-8-28 比赛开始！
 
 蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
