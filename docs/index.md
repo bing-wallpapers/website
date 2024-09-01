@@ -1,3 +1,9 @@
+## 2024-9-2 红绿金刚鹦鹉之家
+
+红绿金刚鹦鹉，南马托格罗索州，巴西 (© Ellen Goff/Danita Delimont) [4k Edition](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-1 小船轻轻划过泰晤士河
 
 泰晤士河，伦敦，英国 (© Puthipong Worasaran/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
