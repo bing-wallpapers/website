@@ -1,3 +1,9 @@
+## 2024-9-4 物以类聚，人以群分
+
+乌雕鸮，巴基斯坦 (© zahoor salmi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-3 原始之美，人人共享
 
 迷人的水晶湖，高山湖泊，华盛顿州，美国 (© Mitch Pittman/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
