@@ -1,3 +1,9 @@
+## 2024-9-5 2024 年多伦多国际电影节
+
+多伦多城市天际线,加拿大 (© Roberto Machado Noa/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-4 物以类聚，人以群分
 
 乌雕鸮，巴基斯坦 (© zahoor salmi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
