@@ -1,3 +1,9 @@
+## 2024-9-9 “大水”中的彩虹波
+
+阿根廷和巴西边境的伊瓜苏瀑布 (© AirPano LLC/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-8 一座千年历史的修道院
 
 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国 (© Cyril Gosselin/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
