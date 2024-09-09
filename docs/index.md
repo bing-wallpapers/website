@@ -1,3 +1,9 @@
+## 2024-9-10 从天际线到水面
+
+瓦斯科·达·伽马大桥，里斯本，葡萄牙 (© Achim Thomae/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-9 “大水”中的彩虹波
 
 阿根廷和巴西边境的伊瓜苏瀑布 (© AirPano LLC/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
