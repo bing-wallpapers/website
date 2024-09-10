@@ -1,3 +1,9 @@
+## 2024-9-11 石头编织的童话
+
+埃尔茨城堡，德国 (© Allard Schager/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-10 从天际线到水面
 
 瓦斯科·达·伽马大桥，里斯本，葡萄牙 (© Achim Thomae/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
