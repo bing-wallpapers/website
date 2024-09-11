@@ -1,3 +1,9 @@
+## 2024-9-12 度过美好的一天
+
+留尼汪岛附近的海豚群，印度洋，法国海外省 (© Joost van Uffelen/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-11 石头编织的童话
 
 埃尔茨城堡，德国 (© Allard Schager/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
