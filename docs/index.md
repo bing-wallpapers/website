@@ -1,3 +1,9 @@
+## 2024-9-13 自然与人类的天堂
+
+雷耶斯角国家海岸灯塔，加利福尼亚州，美国 (© RMB Images/Photography by Robert Bowman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-12 度过美好的一天
 
 留尼汪岛附近的海豚群，印度洋，法国海外省 (© Joost van Uffelen/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
