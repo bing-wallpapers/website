@@ -1,3 +1,9 @@
+## 2024-9-14 古老又神秘
+
+阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利 (© Piriya Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-13 自然与人类的天堂
 
 雷耶斯角国家海岸灯塔，加利福尼亚州，美国 (© RMB Images/Photography by Robert Bowman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
