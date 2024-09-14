@@ -1,3 +1,9 @@
+## 2024-9-15 香料红和水晶蓝
+
+阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-14 古老又神秘
 
 阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利 (© Piriya Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
