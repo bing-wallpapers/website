@@ -1,3 +1,9 @@
+## 2024-9-16 蹦蹦跳跳，快乐到老
+
+日出时的小袋鼠，阿德莱德河，北领地，澳大利亚 (© Jeremy Woodhouse/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-15 香料红和水晶蓝
 
 阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
