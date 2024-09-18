@@ -1,3 +1,9 @@
+## 2024-9-19 埃尔博河上空的银河
+
+埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-18 云中之城
 
 郡上八幡城，岐阜县，日本 (© ta2funk ito/500px/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
