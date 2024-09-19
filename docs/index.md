@@ -1,3 +1,9 @@
+## 2024-9-20 海盗的最终归宿
+
+奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国 (© Chansak Joe/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-19 埃尔博河上空的银河
 
 埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
