@@ -1,3 +1,9 @@
+## 2024-9-22 陷入沉思
+
+巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-21 为慕尼黑啤酒节干杯！
 
 Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
