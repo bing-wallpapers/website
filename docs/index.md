@@ -1,3 +1,9 @@
+## 2024-9-23 令人惊叹的海獭
+
+海獭，威廉王子湾,阿拉斯加州,美国 (© Gerald Corsi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-22 陷入沉思
 
 巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
