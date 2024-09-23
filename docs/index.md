@@ -1,3 +1,9 @@
+## 2024-9-24 你会相信这种观点吗？
+
+斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛 (© Nopasorn Kowathanakul/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-23 令人惊叹的海獭
 
 海獭，威廉王子湾,阿拉斯加州,美国 (© Gerald Corsi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
