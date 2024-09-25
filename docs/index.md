@@ -1,3 +1,9 @@
+## 2024-9-26 呼叫所有巨嘴鸟的粉丝
+
+蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加 (© Oscar Dominguez/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-25 古代巨人的王国
 
 巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
