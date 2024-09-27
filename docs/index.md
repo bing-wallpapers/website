@@ -1,3 +1,9 @@
+## 2024-9-28 海湾群岛的光芒
+
+日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-27 在漂浮的城市之上
 
 大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利 (© Bachir Moukarzel/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
