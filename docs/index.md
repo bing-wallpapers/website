@@ -1,3 +1,9 @@
+## 2024-9-30 随浮冰漂流
+
+斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威 (© AWL Images/DanitaDelimont) [4k Edition](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-9-29 连接康涅狄格州
 
 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国 (© pabradyphoto/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
