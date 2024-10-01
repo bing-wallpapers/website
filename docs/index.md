@@ -1,3 +1,9 @@
+## 2024-10-2 河流的狂野舞蹈
+
+温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国 (© Design Pics/DanitaDelimont) [4k Edition](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-1 绝美的秋日风景
 
 禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
