@@ -1,3 +1,9 @@
+## 2024-10-3 盛大的爱情见证
+
+阿格拉的泰姬陵，安拉阿巴德，印度 (© Tanarch/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-2 河流的狂野舞蹈
 
 温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国 (© Design Pics/DanitaDelimont) [4k Edition](https://cn.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
