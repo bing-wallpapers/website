@@ -1,3 +1,9 @@
+## 2024-10-4 一轮蓝月亮
+
+木星的冰卫星木卫二 (© NASA/JPL-Caltech/SETI Institute) [4k Edition](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-3 盛大的爱情见证
 
 阿格拉的泰姬陵，安拉阿巴德，印度 (© Tanarch/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
