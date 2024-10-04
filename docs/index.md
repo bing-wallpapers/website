@@ -1,3 +1,9 @@
+## 2024-10-5 跟着老师走！
+
+东察沃国家公园的非洲象，肯尼亚 (© Neil Bowman/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-4 一轮蓝月亮
 
 木星的冰卫星木卫二 (© NASA/JPL-Caltech/SETI Institute) [4k Edition](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
