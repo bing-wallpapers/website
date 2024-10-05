@@ -1,3 +1,9 @@
+## 2024-10-6 一抹金色
+
+郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-5 跟着老师走！
 
 东察沃国家公园的非洲象，肯尼亚 (© Neil Bowman/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
