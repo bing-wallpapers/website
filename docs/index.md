@@ -1,3 +1,9 @@
+## 2024-10-8 托斯卡纳的石头小镇
+
+索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-7 梦想成真的地方
 
 法属波利尼西亚波拉波拉岛的鸟瞰图 (© GLF Media/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
