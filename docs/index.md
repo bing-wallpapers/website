@@ -1,3 +1,9 @@
+## 2024-10-9 色彩斑斓的秋天
+
+马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-8 托斯卡纳的石头小镇
 
 索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
