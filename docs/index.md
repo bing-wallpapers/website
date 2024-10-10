@@ -1,3 +1,9 @@
+## 2024-10-11 云海奇观
+
+黄山云海，安徽省，中国 (© yangyang1991/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-9 色彩斑斓的秋天
 
 马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
