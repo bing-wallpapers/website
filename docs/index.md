@@ -1,3 +1,9 @@
+## 2024-10-12 飞越各大洲
+
+林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-11 云海奇观
 
 黄山云海，安徽省，中国 (© yangyang1991/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
