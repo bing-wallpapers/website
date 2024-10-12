@@ -1,3 +1,9 @@
+## 2024-10-13 辉煌的塞维利亚
+
+塞维利亚王宫少女庭院，西班牙 (© Danny Lehman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-12 飞越各大洲
 
 林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
