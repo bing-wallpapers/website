@@ -1,3 +1,9 @@
+## 2024-10-15 生存竞赛
+
+马拉河的角马大迁徙，肯尼亚 (© Ayzenstayn/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-14 沙滩的秘密和日落
 
 可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
