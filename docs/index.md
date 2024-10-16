@@ -1,3 +1,9 @@
+## 2024-10-17 随风摆动，进入秋天
+
+地肤草，茨城县，日本 (© DigiPub/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-16 发掘过去
 
 侏罗纪海岸的箭石和菊石化石，多塞特郡，英国 (© Nature Picture Library/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
