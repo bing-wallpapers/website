@@ -1,3 +1,9 @@
+## 2024-10-18 邂逅秋日的林荫道
+
+曼哈顿中央公园的秋天，纽约，美国 (© mapman/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-17 随风摆动，进入秋天
 
 地肤草，茨城县，日本 (© DigiPub/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
