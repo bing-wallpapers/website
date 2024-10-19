@@ -1,3 +1,9 @@
+## 2024-10-20 坚持住
+
+哥斯达黎加的三趾树懒 (© Harry Collins/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-19 立足现在，发掘过去
 
 哈索尔神庙，邓德拉神庙群，基纳，埃及 (© Nick Brundle Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
