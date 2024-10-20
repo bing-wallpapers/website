@@ -1,3 +1,9 @@
+## 2024-10-21 在秋天里傲然挺立
+
+乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-20 坚持住
 
 哥斯达黎加的三趾树懒 (© Harry Collins/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
