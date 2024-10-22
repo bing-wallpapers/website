@@ -1,3 +1,9 @@
+## 2024-10-23 无处可去的阶梯
+
+雪莉夫人森林和古堡遗迹，新罕布什尔州，美国 (© yggdrasill/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-22 可怕的外墙
 
 祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
