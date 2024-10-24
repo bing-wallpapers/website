@@ -1,3 +1,9 @@
+## 2024-10-25 恐怖的高度
+
+沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-24 “淘金热”后的鬼城
 
 博迪州立历史公园，莫诺县，加利福尼亚州，美国 (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
