@@ -1,3 +1,9 @@
+## 2024-10-26 海边的神秘树林
+
+幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国 (© mauritius images GmbH/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-25 恐怖的高度
 
 沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
