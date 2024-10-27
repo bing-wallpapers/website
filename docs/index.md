@@ -1,3 +1,9 @@
+## 2024-10-28 雕刻时间到了
+
+南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-27 寒风中的温情
 
 北极熊与幼崽，丘吉尔，曼尼托巴，加拿大 (© Design Pics/plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
