@@ -1,3 +1,9 @@
+## 2024-10-29 猫头鹰的叫声在萦绕
+
+大雕鸮 (© Mark Newman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-28 雕刻时间到了
 
 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
