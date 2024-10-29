@@ -1,3 +1,9 @@
+## 2024-10-30 令人毛骨悚然的历史
+
+从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-29 猫头鹰的叫声在萦绕
 
 大雕鸮 (© Mark Newman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
