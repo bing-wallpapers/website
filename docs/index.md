@@ -1,3 +1,9 @@
+## 2024-11-1 引以为豪的传统
+
+秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国 (© Sabine Gerold/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-10-31 万圣节时冷冰冰的凝视
 
 巴黎圣母院的奇美拉，法国 (© scaliger/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
