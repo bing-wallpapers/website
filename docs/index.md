@@ -1,3 +1,9 @@
+## 2024-11-2 从濒临灭绝到成为国家的象征
+
+黄石国家公园的美洲野牛，怀俄明州，美国 (© Ian Shive/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-1 引以为豪的传统
 
 秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国 (© Sabine Gerold/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
