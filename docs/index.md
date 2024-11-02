@@ -1,3 +1,9 @@
+## 2024-11-3 自然与可持续发展的结合
+
+巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥 (© Claudio Contreras/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-2 从濒临灭绝到成为国家的象征
 
 黄石国家公园的美洲野牛，怀俄明州，美国 (© Ian Shive/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
