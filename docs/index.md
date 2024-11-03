@@ -1,3 +1,9 @@
+## 2024-11-4 胜过千言万语
+
+坎布里亚湖区，格拉斯米尔，英格兰 (© Thomas Molyneux/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-3 自然与可持续发展的结合
 
 巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥 (© Claudio Contreras/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
