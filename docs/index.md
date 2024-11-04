@@ -1,3 +1,9 @@
+## 2024-11-5 异世界之美
+
+马拉赫塞斯国家公园，马拉尼昂州,巴西 (© thanosquest/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-4 胜过千言万语
 
 坎布里亚湖区，格拉斯米尔，英格兰 (© Thomas Molyneux/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
