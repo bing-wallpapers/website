@@ -1,3 +1,9 @@
+## 2024-11-6 日落的阴影
+
+奥林匹克国家公园石狮海滩，华盛顿州，美国 (© T.M. Schultze/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-5 异世界之美
 
 马拉赫塞斯国家公园，马拉尼昂州,巴西 (© thanosquest/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
