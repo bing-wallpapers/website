@@ -1,3 +1,9 @@
+## 2024-11-8 来自冰与火之国
+
+冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-7 初冬之美
 
 金色的松树，坝上草原，中国 (© MelindaChan/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
