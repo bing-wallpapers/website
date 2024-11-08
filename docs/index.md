@@ -1,3 +1,9 @@
+## 2024-11-9 红尘中的宇宙美景
+
+银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-8 来自冰与火之国
 
 冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
