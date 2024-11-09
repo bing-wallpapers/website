@@ -1,3 +1,9 @@
+## 2024-11-10 飞行中的火烈鸟
+
+加勒比火烈鸟，尤卡坦半岛，墨西哥 (© Claudio Contreras/NPL/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-9 红尘中的宇宙美景
 
 银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
