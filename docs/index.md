@@ -1,3 +1,9 @@
+## 2024-11-14 悬崖边的故事
+
+马纳罗拉，五渔村国家公园，利古里亚，意大利 (© John_Silver/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-13 海中的“狮子王”
 
 巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥 (© Claudio Contreras/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
