@@ -1,3 +1,9 @@
+## 2024-11-15 愿望随灯起飞
+
+义蓬灯节 ，清迈，泰国 (© tampatra/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-14 悬崖边的故事
 
 马纳罗拉，五渔村国家公园，利古里亚，意大利 (© John_Silver/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
