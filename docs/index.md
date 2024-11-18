@@ -1,3 +1,9 @@
+## 2024-11-19 令人震撼的拱门
+
+塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-18 一直指引着方向
 
 波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
