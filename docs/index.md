@@ -1,3 +1,9 @@
+## 2024-11-20 加龙河上的历史通道
+
+皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-19 令人震撼的拱门
 
 塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
