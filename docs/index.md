@@ -1,3 +1,9 @@
+## 2024-11-23 大自然的密码
+
+多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-22 悬崖上的城堡
 
 萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
