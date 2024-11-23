@@ -1,3 +1,9 @@
+## 2024-11-24 潮汐与暮色
+
+州立公园，索诺玛海岸，美国加利福尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-23 大自然的密码
 
 多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
