@@ -1,3 +1,9 @@
+## 2024-11-26 有数百年历史的橄榄树
+
+橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-25 野生动物的生活
 
 马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com) [4k Edition](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
