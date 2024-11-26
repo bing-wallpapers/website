@@ -1,3 +1,9 @@
+## 2024-11-27 巨人的安息之地
+
+秋天的巨人之墓，布永市，比利时 (© David Briard/Getty) [4k Edition](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-26 有数百年历史的橄榄树
 
 橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
