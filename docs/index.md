@@ -1,3 +1,9 @@
+## 2024-11-28 山峰从云层中探出头来
+
+日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-27 巨人的安息之地
 
 秋天的巨人之墓，布永市，比利时 (© David Briard/Getty) [4k Edition](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
