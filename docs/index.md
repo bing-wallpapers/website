@@ -1,3 +1,9 @@
+## 2024-11-30 探秘苏格兰的遗产
+
+基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰 (© Tom Mackie/plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-11-29 时间与潮汐之岛
 
 圣米歇尔山，诺曼底，法国 (© Captain Skyhigh/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
