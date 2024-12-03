@@ -1,3 +1,9 @@
+## 2024-12-4 濒临灭绝
+
+雄性白犀，纳库鲁湖，肯尼亚 (© Ingo Arndt/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-3 柱式遗产
 
 Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
