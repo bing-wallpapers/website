@@ -1,3 +1,9 @@
+## 2024-12-7 自然奇观的蓝色魅力
+
+里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-6 一路通往童话之路
 
 鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
