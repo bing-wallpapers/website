@@ -1,3 +1,9 @@
+## 2024-12-8 巴黎圣母院再度回归
+
+巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-7 自然奇观的蓝色魅力
 
 里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
