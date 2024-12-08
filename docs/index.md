@@ -1,3 +1,9 @@
+## 2024-12-9 态度和高度
+
+两只原驼,托雷斯德尔帕恩国家公园 , 智利 (© Floris van Breugel/NPL/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-8 巴黎圣母院再度回归
 
 巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
