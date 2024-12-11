@@ -1,3 +1,9 @@
+## 2024-12-12 为节日做好准备
+
+一品红或圣诞花 (© David Hosking/NPL/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-11 山峰的“胜利三重奏”
 
 拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
