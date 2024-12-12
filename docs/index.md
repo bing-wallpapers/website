@@ -1,3 +1,9 @@
+## 2024-12-13 圣斯蒂芬大教堂的降临节
+
+圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利 (© Calin Stan/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-12 为节日做好准备
 
 一品红或圣诞花 (© David Hosking/NPL/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
