@@ -1,3 +1,9 @@
+## 2024-12-15 泪水之湖
+
+米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-14 "谁"这么说？
 
 猛鸮，加拿大 (© pchoui/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
