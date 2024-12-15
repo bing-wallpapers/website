@@ -1,3 +1,9 @@
+## 2024-12-16 闪烁的街道和冰峰
+
+萨尔茨堡，奥地利 (© bluejayphoto/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-15 泪水之湖
 
 米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
