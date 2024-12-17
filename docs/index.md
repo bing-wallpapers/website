@@ -1,3 +1,9 @@
+## 2024-12-18 壮观的象群队伍
+
+印度吉姆科比特国家公园的大象，印度 (© ABHILASH VISWA PICASSO/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-17 值得爱慕的海岸
 
 传统红色渔民小屋，雷讷峡湾岸边，挪威 (© Pilat666/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
