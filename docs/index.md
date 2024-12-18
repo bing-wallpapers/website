@@ -1,3 +1,9 @@
+## 2024-12-19 闪烁的小镇
+
+锡比乌圣诞市场，罗马尼亚 (© Calin Stan/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-18 壮观的象群队伍
 
 印度吉姆科比特国家公园的大象，印度 (© ABHILASH VISWA PICASSO/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
