@@ -1,3 +1,9 @@
+## 2024-12-20 圣诞老人要来镇上了
+
+罗瓦涅米圣诞老人村，拉普兰，芬兰 (© Smelov/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-19 闪烁的小镇
 
 锡比乌圣诞市场，罗马尼亚 (© Calin Stan/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
