@@ -1,3 +1,9 @@
+## 2024-12-24 祝你圣诞快乐！
+
+德国圣诞市场 (© Cyril Gosselin/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-23 准备好发泄一些压力了吗？
 
 钏路的两只丹顶鹤，北海道，日本 (© Wirestock, Inc./Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
