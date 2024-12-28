@@ -1,3 +1,9 @@
+## 2024-12-29 圣山之上
+
+婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-28 保护海洋生物——绿海龟
 
 一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚 (© Damsea/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
