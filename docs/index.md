@@ -1,3 +1,9 @@
+## 2025-1-1 过一个冰雪元旦！
+
+在北极玩耍的北极熊 (© Ondrej Prosicky/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2024-12-31 新年快乐！
 
 国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
