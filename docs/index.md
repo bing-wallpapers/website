@@ -1,3 +1,9 @@
+## 2025-1-3 尽享欢乐时光
+
+英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰 (© atiger/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-2 熠熠生辉的村庄
 
 阿尔德兹村上空的星轨，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
