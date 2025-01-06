@@ -1,3 +1,9 @@
+## 2025-1-7 岩石与滚石
+
+日落时的摩拉基大圆石，南岛，新西兰 (© Douglas Pearson/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-6 神圣的深渊
 
 被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利 (© Andrea Pucci/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
