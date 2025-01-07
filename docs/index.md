@@ -1,3 +1,9 @@
+## 2025-1-8 银装素裹，巍峨壮丽
+
+被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-7 岩石与滚石
 
 日落时的摩拉基大圆石，南岛，新西兰 (© Douglas Pearson/eStock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
