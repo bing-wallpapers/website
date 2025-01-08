@@ -1,3 +1,9 @@
+## 2025-1-9 变换的地平线
+
+苏丝斯黎沙丘，纳米布沙漠，纳米比亚 (© Airpano/Amazing Aerial Agency) [4k Edition](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-8 银装素裹，巍峨壮丽
 
 被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
