@@ -1,3 +1,9 @@
+## 2025-1-12 深海中的锐利目光
+
+大堡礁的宝石大眼鲷鱼，澳大利亚 (© Fred Bavendam/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-11 旧时代的古老拱门
 
 梅克内斯的 Heri es-Swani，摩洛哥 (© Calin Stan/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
