@@ -1,3 +1,9 @@
+## 2025-1-13 “威尔士”祝你新年快乐！
+
+小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国 (© Westend61 on Offset/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-12 深海中的锐利目光
 
 大堡礁的宝石大眼鲷鱼，澳大利亚 (© Fred Bavendam/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
