@@ -1,3 +1,9 @@
+## 2025-1-16 诞生于火，历久弥坚
+
+尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国 (© yhelfman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-14 宁静之地
 
 Village of Zahara de la Sierra, Cádiz province, Spain (© SEN LI/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
