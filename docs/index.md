@@ -1,3 +1,9 @@
+## 2025-1-19 一座适合神居住的石窟
+
+海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-18 1,001 座白色沙丘
 
 白沙国家公园的日落，新墨西哥州，美国 (© Image Professionals GmbH/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
