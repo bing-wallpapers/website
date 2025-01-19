@@ -1,3 +1,9 @@
+## 2025-1-20 松鼠之趣
+
+欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-19 一座适合神居住的石窟
 
 海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
