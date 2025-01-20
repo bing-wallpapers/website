@@ -1,3 +1,9 @@
+## 2025-1-21 迷人的海湾风光
+
+俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-20 松鼠之趣
 
 欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
