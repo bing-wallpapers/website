@@ -1,3 +1,9 @@
+## 2025-1-22 在失落之城发现美
+
+代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-21 迷人的海湾风光
 
 俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
