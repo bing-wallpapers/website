@@ -1,3 +1,9 @@
+## 2025-1-24 力量沸腾
+
+冰岛的史托克间歇泉 (© John and Tina Reid/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-23 电影、山脉和魔法
 
 黄昏时的鹿谷，帕克城，犹他州，美国 (© Adventure_Photo/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
