@@ -1,3 +1,9 @@
+## 2025-1-26 优雅地老去
+
+比利时的欧洲山毛榉森林 (© Philippe Moes/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-25 波尔图的黄金时刻
 
 波尔图，葡萄牙 (© Starcevic/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
