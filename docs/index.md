@@ -1,3 +1,9 @@
+## 2025-1-27 激发你的好奇心
+
+琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国 (© Nick Lake/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-26 优雅地老去
 
 比利时的欧洲山毛榉森林 (© Philippe Moes/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
