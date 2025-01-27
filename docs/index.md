@@ -1,3 +1,9 @@
+## 2025-1-28 祝您阖家欢乐，万事如意！
+
+夜空中的烟花表演，长沙，湖南省，中国 (© Sino Images/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-27 激发你的好奇心
 
 琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国 (© Nick Lake/Tandem Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
