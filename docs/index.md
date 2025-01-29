@@ -1,3 +1,9 @@
+## 2025-1-30 再次冲向战斗
+
+罗兰多山口，奥德萨和佩迪多山国家公园，西班牙 (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-29 春节快乐！
 
 南京夫子庙的春节许愿牌，江苏省，中国 (© lazy dragon/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
