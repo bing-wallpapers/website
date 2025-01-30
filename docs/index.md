@@ -1,3 +1,9 @@
+## 2025-1-31 一点都不普通
+
+日出时的平原斑马，莫卡拉国家公园，南非 (© EcoPrint/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-1-30 再次冲向战斗
 
 罗兰多山口，奥德萨和佩迪多山国家公园，西班牙 (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo) [4k Edition](https://cn.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
