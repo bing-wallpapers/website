@@ -1,3 +1,9 @@
+## 2025-2-2 天气预报还是运气预报？
+
+年幼的高山土拨鼠 (© Jonas Fichtner-Pflaum/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-1 雪与石
 
 国王岩堡垒 , 瑞士撒克逊, 德国 (© Bildagentur-online/Exss/Alamy) [4k Edition](https://cn.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
