@@ -1,3 +1,9 @@
+## 2025-2-3 春光明媚的日子
+
+盛开的樱花树上的红头长尾山雀 (© Haitong Yu/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-2 天气预报还是运气预报？
 
 年幼的高山土拨鼠 (© Jonas Fichtner-Pflaum/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
