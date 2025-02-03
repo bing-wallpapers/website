@@ -1,3 +1,9 @@
+## 2025-2-4 云端漫步
+
+金桥，巴拿山，岘港，越南 (© Hien Phung Thu/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-3 春光明媚的日子
 
 盛开的樱花树上的红头长尾山雀 (© Haitong Yu/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
