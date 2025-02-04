@@ -1,3 +1,9 @@
+## 2025-2-5 对国家遗产的思考
+
+拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-4 云端漫步
 
 金桥，巴拿山，岘港，越南 (© Hien Phung Thu/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
