@@ -1,3 +1,9 @@
+## 2025-2-7 沉浸在蓝调时分
+
+特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-6 对国家遗产的思考
 
 拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture) [4k Edition](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
