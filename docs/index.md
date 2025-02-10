@@ -1,3 +1,9 @@
+## 2025-2-11 历史的守望之眼
+
+云冈石窟，大同，山西省，中国 (© Eric Yang/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-10 在伞下
 
 雨伞艺术装置，博罗市场，伦敦，英国 (© Malcolm P Chapman/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
