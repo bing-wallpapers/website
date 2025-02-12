@@ -1,3 +1,9 @@
+## 2025-2-13 大地之盐
+
+泰瑞尔湖，维多利亚州，澳大利亚 (© Monica Bertolazzi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-11 历史的守望之眼
 
 云冈石窟，大同，山西省，中国 (© Eric Yang/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
