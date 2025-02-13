@@ -1,3 +1,9 @@
+## 2025-2-14 瞧这对恩爱的情侣
+
+两只麦哲伦企鹅，福克兰群岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-13 大地之盐
 
 泰瑞尔湖，维多利亚州，澳大利亚 (© Monica Bertolazzi/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
