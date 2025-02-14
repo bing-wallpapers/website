@@ -1,3 +1,9 @@
+## 2025-2-15 冰雪奇景
+
+三十槌冰柱，秩父市，日本 (© watayu0821/shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-14 瞧这对恩爱的情侣
 
 两只麦哲伦企鹅，福克兰群岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
