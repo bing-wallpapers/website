@@ -1,3 +1,9 @@
+## 2025-2-16 守护海洋巨兽
+
+座头鲸妈妈和宝宝，汤加 (© Chase Dekker/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-15 冰雪奇景
 
 三十槌冰柱，秩父市，日本 (© watayu0821/shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
