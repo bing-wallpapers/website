@@ -1,3 +1,9 @@
+## 2025-2-18 无尽的蓝色
+
+大蓝洞，伯利兹 (© JamiesOnAMission/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-17 冰雪边界
 
 Coll d'Ares，加泰罗尼亚比利牛斯 ​​ 山脉 (© CRISTIAN IONUT ZAHARIA/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
