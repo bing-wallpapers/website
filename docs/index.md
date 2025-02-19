@@ -1,3 +1,9 @@
+## 2025-2-20 高贵的双影
+
+马鹿，加拿大 (© Delbars/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-18 无尽的蓝色
 
 大蓝洞，伯利兹 (© JamiesOnAMission/Shutterstock) [4k Edition](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
