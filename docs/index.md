@@ -1,3 +1,9 @@
+## 2025-2-22 向辉煌迈进
+
+圣路易斯拱门, 密苏里州, 美国 (© f11photo/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-21 静水流深的传说
 
 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
