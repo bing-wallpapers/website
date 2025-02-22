@@ -1,3 +1,9 @@
+## 2025-2-23 清晨的美好精致
+
+日出时分的富士山, 河口湖, 日本 (© Twenty47studio/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-22 向辉煌迈进
 
 圣路易斯拱门, 密苏里州, 美国 (© f11photo/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
