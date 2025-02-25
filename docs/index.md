@@ -1,3 +1,9 @@
+## 2025-2-26 苏格兰战略的最佳体现
+
+莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰 (© WLDavies/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-25 风蚀石们的问候
 
 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion) [4k Edition](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
