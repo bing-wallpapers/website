@@ -1,3 +1,9 @@
+## 2025-2-28 在虎穴小憩
+
+虎穴寺，不丹 (© Baron Reznik/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-27 极地关怀
 
 北极熊幼崽，丘吉尔，马尼托巴省，加拿大 (© Eric Baccega/NPL/Minden Pictures) [4k Edition](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
