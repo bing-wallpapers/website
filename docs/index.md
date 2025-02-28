@@ -1,3 +1,9 @@
+## 2025-3-1 天空之镜
+
+玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大 (© Mumemories/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
+![](https://cn.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
+
 ## 2025-2-28 在虎穴小憩
 
 虎穴寺，不丹 (© Baron Reznik/Getty Images) [4k Edition](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp)
